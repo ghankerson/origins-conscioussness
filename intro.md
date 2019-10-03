@@ -43,20 +43,20 @@ even Jung is suggesting this is the book to read. Who am I to differ?
 As intriguing as I have found this book it is a difficult read.  I am not a
 Jungian Analyst so I am learning as I go.  I have started the book over five
 times. Although re-reading has helped me understand a good deal more of the
-concepts Neumann puts forth, each page can be challenging. I have recently
-broken up the sidewalk on the east side of my house and reading each page of the
-book at times feels analogous to hauling off a large chunk of concrete.  I found
-myself wishing for a discussion of the book. Many popular books like the Harry
-Potter and Game of Thrones series have podcasts where podcasters go through a
-book chapter by chapter and offer analysis. I haven't found such a resource
-online as of it yet.  So the next best thing is to do this myself.  This is an
-ambitious intellectual task and I will probably lack the expertise to do job a
-good Jungian Analyst would do but the process will be enlightening for me as I
-hope it is for you..
+concepts Neumann puts forth, but sometimes each page can be challenging. I have
+recently broken up the sidewalk on the east side of my house and reading each
+page of the book at times feels analogous to hauling off a large chunk of
+concrete.  I found myself wishing for a discussion of the book. Many popular
+books like the Harry Potter and Game of Thrones series have podcasts where
+podcasters go through a book chapter by chapter and offer analysis. I haven't
+found such a resource online as of it yet.  So the next best thing is to do this
+myself.  This is an ambitious intellectual task and I will probably lack the
+expertise to do job a good Jungian Analyst would do but the process will be
+enlightening for me as I hope it is for you..
 
 
 * Back to Peterson's interpretation of the Lion King.  I think he is
-  interpreting the symbolism in a plausible even correct or reasonable way. 
+  interpreting the symbolism correctly or at least a correct interpretation. 
 
 * The strange thing about symbolism is we understand them at some level but they
   are very hard to explain verbally rationally.  Symbols stirs us but they are
@@ -80,10 +80,6 @@ member's of a secret society. The two pieces could be united to create a match
 and establish identity. (This is how public key cryptography works at a high
 level in computing interestingly enough).  
 
-* Collective unconscious definition: A trans-personal or collective part of the
-  psyche that has grown out of evolutionary experience that speaks to the ego in
-symbols or archetypes. 
-
 * That is a great microcosm of Jung's model of the psyche. The collective
   unconscious sends messages via symbols to the conscious ego in an effort to
 compensate for something that is lacking. If the ego can understand and
@@ -92,24 +88,40 @@ Consciousness develops out of the unconscious. Jung called this process
 individuation. Neumann in this book outlines what he sees as the stages of
 individuation based on mythological projections from the collective unconscious.
 
-* Since the consciousness grows out of the collective unconscious Neumann uses
-  the symbol of the Uroboros - a snake or dragon eating its tail. In Neumann's
-first stage, the ego is a small germ in the ocean of the collective unconscious.
-Think of an infant in his mother's arms or an embryo in the womb.
+Some definitions are in order here to help us get started. If you are familiar
+with Jung and his work this will be old hat for you. These concepts are covered
+in volumes of books but I will try to give you just enough here to get started. 
 
-* The next stage is the adolescent in the clutch of the Great Mother.  In the
-  stage the Great Mother is both nurturing and destructive. She raises an infant
-son only to sacrifice him in ritual renewal of the seasons.  The son is a corn
-god to be raised and felled in perpetual rhythm. 
+* Archetype on the first page of the introduction Neumann gives us a nice
+  straight forward definition. "They (archetypes) are the pictorial forms of
+instincts, for the unconscious mind in images which as in dreams and fantasies,
+initiate the process of conscious reaction and assimilation. ".  Lets repeat
+this again: "They (archetypes) are the pictorial forms of
+instincts, for the unconscious mind in images which as in dreams and fantasies,
+initiate the process of conscious reaction and assimilation. "
 
-* Next the hero is born and is faced with the task of the dragon fight and
-  recovering captive and treasure. We know this story  from any number of myths
-and stories. From the myth of Osiris to St. George and the dragon to King Arthur
-and the Knights of the round table to Lord of the Rings and Harry Potter.  
+* Collective unconscious definition: A trans-personal or collective part of the
+  psyche that has grown out of evolutionary experience that speaks to the ego
+in symbols or archetypes. We aren't blank slates but a "pre-programmed" with
+archetypal reactions to life situations we encounter, like falling in love,
+becoming a parent for example. Think of this as the psychological side of human
+evolution.
 
-* Last the hero transforms into a god and achieves immortality. In psychological
-  terms the ego finally permanently breaks free of the unconscious.
+* Individuation a process of individual increase in consciousness ( perhaps
+  analogous to emotional, spiritual and intellectual maturity) by surfacing archetypal
+images,  wrestling with their significance, and making them conscious. 
 
+* Complex: a series of archetypal images around a common theme (mother, father,
+  money and many many others). When we are complexed about say our mother (or
+anything symbolically representative of a mother) we become possessed by the
+mother archetype. In other words ideas can have you. We are not blank slates.
+More on this to come.
+
+### Recommended reading or listening if you want more depth on Jung and his model of the psyche.
+[The Jung Podcast](https://jungian.libsyn.com/) and excellent introduction to
+Jung's model of the psyche by a practitioner. 
+
+[On Jung by Anthony Stevens](https://www.amazon.com/gp/offer-listing/069101048X).
 
 
 ## Introduction
@@ -123,69 +135,35 @@ analytical psychology of C.J. Jung ..."
 The key word here is phases.  His theory outlines what he sees as the stages
 of the development of consciousness.
 
-In the next paragraph he states that in contrast to other explanations of
-consciousness based largely on environmental conditions, "our inquiry is more
-concerned with the internal, psychic and archetypal factors which determine the
-course of that development." 
+Neumann:  "It is the task of this book to show that a series of archetypes is a
+main constituent of mythology, that they (archetypes) stand in stadial
+succession in an organic relation to one another, and that their stadial
+succession determines the growth of consciousness. In the course of its
+ontogenetic (lifetime) development, the individual ego has to pass through the
+same archetypal stages which determined the evolution of consciousness in the
+life humanity. 
 
-Some definitions are in order here to help us get started:
+What I think he is saying in this statement is that historically human
+consciousness went through a series of stages of development. The individual in
+his lifetime passes through these same stages as the species. These stages are
+composed of archetypes - pictoral forms of instincts. We see these archetypes in
+mythology.  Think of it this way: from an evolutionary standpoint it took
+millions of years to make you. The archetypes, the collective unconscious and
+myth are a storehouse of information that we can tap into or can tap into us. We
+aren't blank slates in the Jungian world. We can have ideas but ideas can also
+have us (Peterson). Another way of saying this is the collective unconscious
+influences us much more than we are ever aware of. Species level development or
+the collective unconscious influences us as individuals greatly.
 
-* Archetype  on the first page of the introduction Neumann gives us a nice
-  straight forward definition. "They (archetypes) are the pictorial forms of
-instincts, for the unconscious mind in images which as in dreams and fantasies,
-initiate the process of conscious reaction and assimilation. ".  Lets repeat
-this again: "They (archetypes) are the pictorial forms of
-instincts, for the unconscious mind in images which as in dreams and fantasies,
-initiate the process of conscious reaction and assimilation. "
-
-* Collective Unconscious: a layer of the psyche that is trans-personal or
-  shared.  It's structure is composed of archetypes. 
-
-* Individuation a process of individual increase in consciousness ( perhaps
-  analogous to emotional, spiritual and intellectual maturity) by surfacing archetypal
-images,  wrestling with their significance, and making them conscious. 
-
-* Complex: a series of archetypal images around a common theme (mother, father,
-  money and many many others). When we are complexed about say our mother (or
-anything symbolically representative of a mother) we become possessed by the
-mother archetype. In other words ideas can have you. We are not blank slates.
-More on this to come.
-
-(Recommend the Jung podcast on Jung's model of the psyche) on Jung's model of
-the psyche and Anthony Stevens book on Jung).
-
-Back to what Neumann is trying to accomplish in this book.  He states on page two of the
-introduction "It is the task of this book to show that a series of archetypes is
-a main constituent of mythology, that they (archetypes) stand in stadial succession in an
-organic relation to one another, and that their stadial succession determines
-the growth of consciousness. In the course of its ontogenetic (lifetime) development, the
-individual ego has to pass through the same archetypal stages which determined
-the evolution of consciousness in the life humanity. 
-
-You can see why I said each page of the book is like hauling off a small slab of
-concrete - Neumann's words have weight.  What I think he is saying in this
-statement is that historically consciousness went through a series of stages of
-development. The individual in his lifetime passes through these same stages as
-the species. These stages are composed of archetypes - pictoral forms of
-instincts. We see these archetypes in mythology.  Think of it this way: from an
-evolutionary standpoint it took millions of years to make you. The archetypes,
-the collective unconscious and myth are a storehouse of information that we can
-tap into to fuel personal growth. Passing through each stage, the ego transforms
-its relationship to the archetypes. "The ability to perceive, to understand, and
-to interpret these images is a process of succession in time, .. it takes place
-in stages." 
-
-Neumann suggests these "stages of conscious development are only a
-fraction of archetypal reality as a whole", but using an evolutionary lens, we
-can find a "guiding line ...  to help us in the theory and practice of depth
-psychology."
-
-The psyche then moves through these developmental stages that are portrayed in
-myths during its lifetime.  Getting stuck in a stage then results in a neurosis
-until the stage is resolved and the psyche can continue to grow. 
+Passing through each stage, the ego transforms its relationship to the
+archetypes. "The ability to perceive, to understand, and to interpret these
+images is a process of succession in time, ..  it takes place in stages." This
+ability to absorb unconscious contents improves at each stage and leads to
+individual transformation and improvement. Jung called this telos which means
+self-realization. 
 
 We can get a feel for these stages composed of archetypes by just examining the
-section titles of the book.
+section titles of the book. We will do a podcast episode about each of these.
 
 A. The Creation Myth
 	I. The Uroborous
@@ -202,47 +180,35 @@ C. The Transformation Myth
 	II. Transformation or Osiris
 
 
-Why the gods within? For Neumann that which was projected out ward - the gods -
-is still with us in our psyches. The collective unconscious is the deeper layer of
-humanity that each of us is connected to. This is what he is exploring in this
-book. His methodology is to start with a comparative method that gather content, the
-symbols and collective material found in individuals and join them with
-historical religion and related materials to establish context and then
-supplement this with an evolutionary approach  where he considers this content
-in relation to the current stage of consciousness under consideration. 
+Human consciousness has absorbed more and more unconscious contents over
+thousands of years and in this process expands its own frontiers. Neumann
+suggests that in the West consciousness has achieved continuity where each stage
+is integrated. According to Neumann modern consciousness sits on this
+integration.
 
-Neumann makes a valiant effort to consider all of mythology - to the extent
-someone can can do such a thing - and find in it patterns and stages of
-development and in doing this has found a thread that joins the development of
-consciousness in stages. He focuses on Western development - although this does
-include Mesopotamian and Egyptian myth in addition to European myth. He also
-shows how these myth are all developed on top of each other - they are the
-stages of development embedded in mythological projections. Neumann goes so far
-as to say the structure of modern consciousness rests upon this integration." We
-will see more on this when we review the first chapter "The Uroboros".
+Now when he says West this includes ancient Babylon and Egypt. I am really
+excited to get into this aspect of the book because its absolutely fascinating.
+He ties the myths like those of Marduk (Babylon), Osiris (Egypt), and Christ
+together as themes that are the  basis for development of society and
+consciousness.  This is that ability to look under the current of history and
+see the themes that still influence us today that make Neumann so compelling and
+fascinating.
 
-All of this historical material is still with us.  Think of the classic hero's
-journey - the hero slaying the dragon this is the story of Marduk and it goes
-back to humanity's first civilization and the story was almost certainly
-probably even older.  It's Marduk, Horus and Set, St. George and the Dragon,
-King Arthur, and even Harry Potter. These myths resonate with us even today
-because the tell us something symbolically about how to live; how to make
-darkness into light. 
+Why is this podcast called The Gods Within? For Neumann that which was projected
+outward the gods is still with us in our psyches due to the influence of the
+collective unconscious.  The collective unconscious is the deeper layer of
+humanity that each of us is connected to.  Consciousness is a late evolutionary
+product and the collective unconscious came first. Throughout human history and
+pre-history symbols were projected outward as powerful forces or gods. These
+same symbols and archetypes determine individual psychic growth as well.
 
-Even our language is chock full of clues in the etymology of our words. Take the
-work "show". A synonym for show is demonstrate. In Spanish we get closer to the
-original Latin "demonstrar". We can see the word monster in there de-monstrate
-and we are again back to St. George or Marduk killing the dragon or even God
-separating the light from the darkness to create the world.  Light, Darkness,
-Order , Chaos, Male, Female, hero, dragon. We are creative and grow when we make
-something unknown known or something unconscious conscious. These concepts and
-symbols are so fundamental to us that we often don't realize they are there.  
-
-Neumann goes to some pains to distinguish between the personal and
-transpersonal.   I think he is refuting Freud here suggesting that Oedipal
-complex is not about an individual's mother but a collective Great Mother. He
-insists we begin in the transpersonal because the ego is a late development in
-the human psyche. 
+Neumann states "The integration of these collective symbols leads to the further
+development of the psyche and synthesis of the personality  thus it has a
+therapeutic aim as well. In this process the psyche expands leading to new
+solutions and new problems which trigger the whole process again. The collective
+human aspect is rediscovered and begins to come alive, new insights, new
+possibilities of life add themselves to the narrowly personalistic and rigid
+personality of the sick-souled modern man." 
  
 ## Podcast conclusion I am passionate about learning about this fascinating
 intersection of myth and psychology and I hope you will join me on this journey.
