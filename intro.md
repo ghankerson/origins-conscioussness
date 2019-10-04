@@ -1,6 +1,6 @@
 # The Gods Within
 
-## An analysis of Erich Neumann's "The Origins and History of Consciousness"
+## An review of Erich Neumann's "The Origins and History of Consciousness"
 
 ### How I got to this point and what am I doing here?
 
