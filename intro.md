@@ -30,29 +30,23 @@ Eventually I landed on Neumann - a student and then colleague of Jung. His "The
 Origins and History of Consciousness" is such a fascinating book on so many
 levels. Jungian's like Neumann have an understanding of human history and in
 particular Western history and its influence on the individual that is more
-comprehensive than anything I have seen. They can cut through thousands of
-years of history and find the themes that still heavily influence us today.  I
-am also fascinated with Jung's incorporation of myth into his work on the
-psyche and the collective unconscious. I became even more interested in reading
-this book when seeing Jung's forward where Jung states "if I were granted a
-second lease on life I would start to ... sift out all those 'beginnings
-without continuation' and knead them into a whole. This difficult and
-meritorious task the author has performed with outstanding success."  It seems
-even Jung is suggesting this is the book to read. Who am I to differ? 
+comprehensive than anything I have seen. They can cut through thousands of years
+of history and find the themes that still heavily influence us today.  I am also
+fascinated with Jung's incorporation of myth into his work on the psyche and the
+collective unconscious. I became even more interested in reading this book when
+seeing Jung's forward where Jung states "if I were granted a second lease on
+life I would start to ... sift out all those 'beginnings without continuation'
+and knead them into a whole. This difficult and meritorious task the author has
+performed with outstanding success."  It seems even Jung is suggesting this is
+the book to read. Who am I to differ? 
 
-As intriguing as I have found this book it is a difficult read.  I am not a
-Jungian Analyst so I am learning as I go.  I have started the book over five
-times. Although re-reading has helped me understand a good deal more of the
-concepts Neumann puts forth, but sometimes each page can be challenging. I have
-recently broken up the sidewalk on the east side of my house and reading each
-page of the book at times feels analogous to hauling off a large chunk of
-concrete.  I found myself wishing for a discussion of the book. Many popular
-books like the Harry Potter and Game of Thrones series have podcasts where
-podcasters go through a book chapter by chapter and offer analysis. I haven't
-found such a resource online as of it yet.  So the next best thing is to do this
-myself.  This is an ambitious intellectual task and I will probably lack the
-expertise to do job a good Jungian Analyst would do but the process will be
-enlightening for me as I hope it is for you..
+As intriguing as I have found this book it is a difficult read.  I am an amateur
+in the non-pejorative sense of the word - this is a labor of love.  Many
+popular books like the Harry Potter and Game of Thrones series have podcasts
+where podcasters go through a book chapter by chapter and offer analysis. I
+haven't found such a resource as of it yet.  So the next best thing is to do
+this myself.  This is an ambitious intellectual task and I hope the process will
+be enlightening for me and for you.
 
 
 * Back to Peterson's interpretation of the Lion King.  I think he is
@@ -60,15 +54,15 @@ enlightening for me as I hope it is for you..
 
 * The strange thing about symbolism is we understand them at some level but they
   are very hard to explain verbally rationally.  Symbols stirs us but they are
-so hard to our finger on.   Symbols often point to things we have consciously
-forgotten but are still there at an unconscious level so they affect us, stir us
-and move us. Jung said a symbol is "something more and other than itself which
-eludes our present knowledge." He also called it "the best possible formulation
-of a relatively unknown thing, which for that reason cannot be clearly or
-characteristically represented."  
+so hard to put our finger on.   Symbols often point to things we have
+consciously forgotten but are still there at an unconscious level so they affect
+us, stir us and move us. Jung said a symbol is "something more and other than
+itself which eludes our present knowledge." He also called it "the best possible
+formulation of a relatively unknown thing, which for that reason cannot be
+clearly or characteristically represented."  
 
-* Symbols art typically rich with visual information that can be interpreted in
-  many often contradictory ways. 
+* Symbols are at the core of Jungian psychology rich with visual information
+  that can be interpreted in many often contradictory ways. 
 
 * The etymology of the word symbol is a good example of this. 
 
@@ -88,43 +82,121 @@ Consciousness develops out of the unconscious. Jung called this process
 individuation. Neumann in this book outlines what he sees as the stages of
 individuation based on mythological projections from the collective unconscious.
 
-Some definitions are in order here to help us get started. If you are familiar
-with Jung and his work this will be old hat for you. These concepts are covered
-in volumes of books but I will try to give you just enough here to get started. 
+This is a good time to jump into Jung's model of the psyche which is essential
+for understanding Neumann's work. If you are familiar with Jung and his work
+this will be old hat for you. These concepts are covered in volumes of books but
+I will try to give you just enough here to get started. 
+
+
+## Jung's model of the Psyche
+
+### Recommended reading or listening if you want more depth on Jung and his
+model of the psyche.
+
+I am relying heavily on two resources that I can recommend if you want to dive
+deeper into Jung's model. Instead of just providing definitions of the parts of
+the psyche in Jung's model I will try to give you an idea of the core concepts
+and how they relate to one another.
+
+[The Jung Podcast](https://jungian.libsyn.com/) and excellent introduction to
+Jung's model of the psyche by Jon Betts a Canadian Jungian Analyst. 
+
+[On Jung by Anthony
+Stevens](https://www.amazon.com/gp/offer-listing/069101048X).
+
+
+###The Onion Analogy
+Stevens uses an analogy of an onion with 4 principle layers to describe this
+model. The outer layer is the ego while the innermost layer is called the Self.
+In between we have two layers of the unconscious: the personal and the
+collective unconscious. 
+
+###The Ego
+The ego is what we call I or myself: our conscious existence. It is in charge of
+stability of personality and identity over time as well as cognition, daily
+executive function and reality testing. 
+
+###The Self
+The Self is the director of our lives across time.  Jung posits that we are born
+with our potential defined and the Self guides us to the best possible outcome
+given the environment we physically and psychologically inhabit during our
+lives. Jon Betts refers to Jungian analyst and author Andrew Samuels:
+
+“An archetypal image of man’s fullest potential and the unity of the personality
+as a whole. The Self as a unifying principle within the human psyche occupies
+the central position of authority in relation to psychological life and
+therefore the destiny of the individual. At times Jung speaks of the Self as
+initiatory of psychic life. At other times he refers to its realization as the
+goal.” 
+
+### The Ego Self Axis
+We begin life with a body and the Self. All that potential is with us in the
+beginning as the Self - we are not blank slates according to Jung. We then over
+the first half of life build up our ego making it more and more powerful to
+enable us to interact with and effect the world. At midlife just when we are at
+our most powerful we may find ourselves in a funk or depression -  a midlife
+crisis.  In the Jungian model, there is a teleological reason for this. The Self
+is sending us messages to have us pay more attention to the inner world, the
+unconscious, and the riches to be found there. In this way we come back into
+balance along the Ego Self axis. The depression has a compensatory function.
+
+
+### The Personal Unconscious
+
+The personal unconscious is made of complexes - which can be healthy or
+unhealthy in the Jungian model.  A complex is a cluster of strong feelings
+around a theme. We all have multiple complexes. 
+
+Jon Betts cites the example of a money complex.  As children we realize money
+is powerful as it allows us to either purchase something we desire or prevents
+us from purchasing it due to lack of money. We might hear our parents argue over
+money. As we become independent we might run out of money to pay bills as we
+establish ourselves.  Later we might discover the importance in saving money  or
+investing for retirement. 
+
+All these experiences and create a money complex.  Jung saw complexes as having
+their own personalities that can overwhelm the ego (thus are unconscious) and
+can take over for a time when triggered.  Jung said  “Everyone knows people have
+complexes. What is more important is complexes have people.”  Stevens: "the
+personal unconscious is the product of the interaction between the collective
+unconscious and the environment in which the individual grows up." 
+
+Becoming conscious of complexes and confronting them is the key method to
+promoting the growth of personality and psychological health. Jung did say that
+this is a difficult  even terrifying process, especially at first.
+
+Jung thought there was a core or nuclear element to a complex. This element is
+what he called archetypes of the collective unconscious. This nucleus of the
+complex provides the surface area where a complex and an archetype touch and
+individual.
+
+### The Collective Unconscious
+
+Just as the personal unconscious is composed of complexes the collective
+unconscious consists of archetypes.
 
 * Archetype on the first page of the introduction Neumann gives us a nice
   straight forward definition. "They (archetypes) are the pictorial forms of
 instincts, for the unconscious mind in images which as in dreams and fantasies,
-initiate the process of conscious reaction and assimilation. ".  Lets repeat
-this again: "They (archetypes) are the pictorial forms of
-instincts, for the unconscious mind in images which as in dreams and fantasies,
-initiate the process of conscious reaction and assimilation. "
+initiate the process of conscious reaction and assimilation."  Lets repeat
+this again: "They (archetypes) are the pictorial forms of instincts, for the
+unconscious mind in images which as in dreams and fantasies, initiate the
+process of conscious reaction and assimilation. "
 
 * Collective unconscious definition: A trans-personal or collective part of the
-  psyche that has grown out of evolutionary experience that speaks to the ego
-in symbols or archetypes. We aren't blank slates but a "pre-programmed" with
+  psyche that has grown out of evolutionary experience that speaks to the ego in
+symbols or archetypes. We aren't blank slates but a "pre-programmed" with
 archetypal reactions to life situations we encounter, like falling in love,
 becoming a parent for example. Think of this as the psychological side of human
 evolution.
 
-* Individuation a process of individual increase in consciousness ( perhaps
-  analogous to emotional, spiritual and intellectual maturity) by surfacing archetypal
-images,  wrestling with their significance, and making them conscious. 
+### Individuation
+ A process of individual increase in consciousness ( perhaps analogous to
+emotional, spiritual and intellectual maturity) by surfacing complexes and archetypal images,
+wrestling with their significance, and making them conscious thus promoting
+individual growth.
 
-* Complex: a series of archetypal images around a common theme (mother, father,
-  money and many many others). When we are complexed about say our mother (or
-anything symbolically representative of a mother) we become possessed by the
-mother archetype. In other words ideas can have you. We are not blank slates.
-More on this to come.
-
-### Recommended reading or listening if you want more depth on Jung and his model of the psyche.
-[The Jung Podcast](https://jungian.libsyn.com/) and excellent introduction to
-Jung's model of the psyche by a practitioner. 
-
-[On Jung by Anthony Stevens](https://www.amazon.com/gp/offer-listing/069101048X).
-
-
-## Introduction
+## Book Introduction
 
 What is Neumann trying to accomplish in this book? We don't have to read far to
 answer this question. In the first sentence of the introduction he states: "The
@@ -132,8 +204,8 @@ following attempt outline the archetypal stages of the development of
 consciousness is based on modern depth psychology. It is an application of the
 analytical psychology of C.J. Jung ..."
 
-The key word here is phases.  His theory outlines what he sees as the stages
-of the development of consciousness.
+The key word here is stages.  His theory outlines what he sees as the stages of
+the development of consciousness.
 
 Neumann:  "It is the task of this book to show that a series of archetypes is a
 main constituent of mythology, that they (archetypes) stand in stadial
@@ -150,8 +222,8 @@ composed of archetypes - pictoral forms of instincts. We see these archetypes in
 mythology.  Think of it this way: from an evolutionary standpoint it took
 millions of years to make you. The archetypes, the collective unconscious and
 myth are a storehouse of information that we can tap into or can tap into us. We
-aren't blank slates in the Jungian world. We can have ideas but ideas can also
-have us (Peterson). Another way of saying this is the collective unconscious
+aren't blank slates in the Jungian world. We can have complexes but complexes can also
+have us. Another way of saying this is the collective unconscious
 influences us much more than we are ever aware of. Species level development or
 the collective unconscious influences us as individuals greatly.
 
@@ -165,19 +237,22 @@ self-realization.
 We can get a feel for these stages composed of archetypes by just examining the
 section titles of the book. We will do a podcast episode about each of these.
 
-A. The Creation Myth
+
+A. The Creation Myth 
 	I. The Uroborous
 	II. The Great Mother
 	III. The Seperation of of World Parents: The Principle of Opposites
 
 B. The Hero Myth
-	I. The Birth of the Hero
-	II. The Slaying of the Mother
+	I. The Birth of the Hero II.
+	The Slaying of the Mother
 	III. The Slaying of the Father
 
-C. The Transformation Myth 
+C. The Transformation Myth
 	I. The Captive and the Treasure
 	II. Transformation or Osiris
+
+
 
 
 Human consciousness has absorbed more and more unconscious contents over
@@ -212,4 +287,5 @@ personality of the sick-souled modern man."
  
 ## Podcast conclusion I am passionate about learning about this fascinating
 intersection of myth and psychology and I hope you will join me on this journey.
-Subscribe.
+As we progress through the podcast we will use use movies, myths and fairy tales
+to make these concepts less abstract and more relatable.  Subscribe.
