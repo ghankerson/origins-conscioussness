@@ -266,8 +266,7 @@ excited to get into this aspect of the book because its absolutely fascinating.
 He ties the myths like those of Marduk (Babylon), Osiris (Egypt), and Christ
 together as themes that are the  basis for development of society and
 consciousness.  This is that ability to look under the current of history and
-see the themes that still influence us today that make Neumann so compelling and
-fascinating.
+see the themes that still influence us today that make Neumann so compelling.
 
 Why is this podcast called The Gods Within? For Neumann that which was projected
 outward the gods is still with us in our psyches due to the influence of the
@@ -284,6 +283,10 @@ solutions and new problems which trigger the whole process again. The collective
 human aspect is rediscovered and begins to come alive, new insights, new
 possibilities of life add themselves to the narrowly personalistic and rigid
 personality of the sick-souled modern man." 
+
+The development of consciouness from the unconscious in myth is the focus of the
+first half of the book while the second half focuses on the internalization of
+these myths into the individual psyche.
  
 ## Podcast conclusion I am passionate about learning about this fascinating
 intersection of myth and psychology and I hope you will join me on this journey.
