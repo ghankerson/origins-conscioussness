@@ -1,5 +1,65 @@
 # The Creation Myth and the Uroboros
 
+* The mythological stages of the evolution of consciousness starts with the ego
+  contained in the unconscious and leads up to the ego becoming self aware and
+defending itself. Finally the ego is able to broaden its horizons. 
+
+* The first stage is the creation myth which consist of birth, suffering and
+  emancipation and is projected as the mythology of creation. 
+
+* When the world parents finally separate, the young ego asserts itself. At this
+  stage humanity become self-aware .
+
+* In the beginning is perfection and wholeness. The beginning though is a
+  virtual stage that can be described rationally but only symbolically.
+
+* As soon as the rational mind tries grab on to this idea of the beginning and
+  wholeness, the idea slips through the fingers. For this reason a symbol stands
+at the beginning. 
+* The beginning can be seen as two places the birth of the world and of the
+  individual. 
+
+* The beginning projects itself mythologically as the beginning of the world.
+  These myths begin with the world because in this virtual stage there is no
+separation between the world and the individual psyche. The individual psyche is
+"knows itself as the world and in the world experiences the its own becoming as
+world becoming, its own images as the starry heavens and its own contents as the
+world-creating gods."
+
+* In virtually all myths creation is the creation of light which is symbolically
+  consciousness. Consciousness as light in contrast to the darkness of the
+unconscious is the real object of creation mythology.
+
+* Before the light we still have the virtual stage of creation which precedes
+  the light is surrounded by a series of symbols. 
+
+* Symbols and images are not rational statements and do not hold up to logic.
+  Rather they surround an idea describing it from many sides. The psyche works
+with symbols not logic. The psyche looks at the question of the beginning and
+asks "Where did I come from or Whence?" It is the same question for the
+individual and the world. 
+
+* The answers all come symbolically from deep in the psyche: the unconscious.
+The psyche blends and weaves ideas together even if they are contradictory.
+Symbolic meaning is rich but elusive. It contains something conscious and
+familiar and something unconscious and out of reach.
+
+A symbol group around an idea however can make something unknown more capable of
+becoming conscious.
+
+The beginning has a common symbol in a circle. Its allies are a sphere, and egg
+and the round of alchemy. These allies are self-contained without beginning or
+end. Without history, time, space or consciousness. All this comes with the
+light which is "under the sway of the umanifest godhead whose symbol is the
+circle."
+
+It is the beginning because the opposites are still united; the world parents
+are in perpetual embracer, and it is the end because the opposites have unites
+again bringing the world to rest. 
+
+One symbol is the T'ai C'hi containing black and white, day and night, male and
+female.
+ 
 Neumann's primary thesis is that consciousness in the individual repeats the
 developmental stages of humanity. Whenever we speak of creation of the world, we
 are talking about the birth of the individual psyche. When we talk about the
