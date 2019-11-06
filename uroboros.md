@@ -11,11 +11,12 @@ defending itself. Finally the ego is able to broaden its horizons.
   stage humanity become self-aware .
 
 * In the beginning is perfection and wholeness. The beginning though is a
-  virtual stage that can be described rationally but only symbolically.
+  virtual stage that cannot be described rationally but only symbolically.
 
-* As soon as the rational mind tries grab on to this idea of the beginning and
-  wholeness, the idea slips through the fingers. For this reason a symbol stands
-at the beginning. 
+* As soon as the rational mind tries grab on to this idea of the beginning plus
+  end, creation plus destruction, the idea slips through the fingers. For this
+reason a symbol stands at the beginning. 
+
 * The beginning can be seen as two places the birth of the world and of the
   individual. 
 
@@ -35,7 +36,7 @@ unconscious is the real object of creation mythology.
 
 * Symbols and images are not rational statements and do not hold up to logic.
   Rather they surround an idea describing it from many sides. The psyche works
-with symbols not logic. The psyche looks at the question of the beginning and
+in symbols not logic. The psyche looks at the question of the beginning and
 asks "Where did I come from or Whence?" It is the same question for the
 individual and the world. 
 
@@ -44,23 +45,99 @@ The psyche blends and weaves ideas together even if they are contradictory.
 Symbolic meaning is rich but elusive. It contains something conscious and
 familiar and something unconscious and out of reach.
 
-A symbol group around an idea however can make something unknown more capable of
+* A symbol group around an idea however can make something unknown more capable of
 becoming conscious.
 
-The beginning has a common symbol in a circle. Its allies are a sphere, and egg
-and the round of alchemy. These allies are self-contained without beginning or
-end. Without history, time, space or consciousness. All this comes with the
-light which is "under the sway of the umanifest godhead whose symbol is the
-circle."
+* The beginning has a common symbol in a circle. Its allies are a sphere, and
+  egg and the round of alchemy. All of symbols in this group  are
+self-contained without beginning or end. Without history, time, space or
+consciousness. All this comes with the light which is "under the sway of the
+umanifest godhead whose symbol is the circle."
 
-It is the beginning because the opposites are still united; the world parents
-are in perpetual embracer, and it is the end because the opposites have unites
+* It is the beginning because the opposites are still united; the world parents
+are in perpetual embrace, and it is the end because the opposites have united
 again bringing the world to rest. 
 
-One symbol is the T'ai C'hi containing black and white, day and night, male and
-female.
- 
-Neumann's primary thesis is that consciousness in the individual repeats the
+* The world parents are united and thus are male and female: the great hermaphrodite.
+
+* One symbol is the T'ai C'hi containing black and white, day and night, male
+  and female. This symbol is half black and half white each half containing a
+smaller circle with the opposite color inside it so the white half has a small
+white circle and vice-versa.
+
+*There was something formless yet complete,
+That existed before heaven and earth,
+Without sound sound, without substance
+Dependent on nothing, unchanging
+All pervading, unfailing
+One may think of it as the mother of all things under heaven.*
+*Tao Teh Ching*
+
+* Members of this symbol group appear in Egypt, New Zealand, Greece, Africa and
+  India. The symbol group in these myths are universal - the World Parent or
+Heaven and Earth lying on top of one another united timelessly.  This again is
+the great hermaphrodite that contains the masculine and the feminine.
+
+* The Hindu *purusha* combines the poles or the opposites and is the primal
+  creative element
+
+*In the beginning the world was Soul (Atman) alone in the form of a person.
+Looking around he saw nothing else than himself. He said first: "I am." He was,
+indeed, as large as a woman and a man closely embraced. He caused that self
+(pat) into two pieces. Therefrom arose a husband and a wife.*
+
+Similarly, Plato: *And he established the universe a sphere revolving in a
+circle, one ad solitary, yet by reason of its excellence able to bear himself
+company, and needing no other friendship or aquaintance.*
+
+* The perfection that rests in itself in no way contradicts the perfection
+  which encircles itself.  The part that encircles is static, eternal and
+unchanging while the center is the germ cell of creativity - the potential for
+forward momentum. This circular snake or dragon that bites its own tale is the
+self-begetting uroboros of which the Egyptians say it slays, it weds, and
+impregnates itself.
+
+* The uroboros is full of contradictory opposites man and woman, giving birth
+  and slaying to end life it is active and passive above and below all at once.
+
+* The uroboros is known to ancient Babylon, the Mandaeans, the Phoenicians,
+  Egyptians, in the Revelation of St. John, the Gnostics, the Navajo, Mexico and
+India.
+
+* Today the concepts around the symbol of the uroboros are difficult for us to
+  grasp. It is all and it is nothing. It is wholeness and unity as well as
+non-differentiation or the absence of opposites. The modern mind only sees this
+as paradox but symbols and images can contain this contradiction and still be whole.
+Jung often speaks of holding the tension of the opposites. 
+
+* The symbols of our past are still alive today in the individual psyche, in
+  dreams and fantasies.  As long as humanity exists the circle will be a symbol
+of perfection: the primal deity that is sufficient unto itself and the self that
+has gone beyond the opposites will appear as the mandala. 
+
+* The round is the symbolic representation of the dawn of the world, the dawn
+  of consciousness, and the dawn of the individual. It is "recollected" with the
+birth of every newborn. It is a psychic stage that exists before the formation
+of the ego and is re-experienced in each child. 
+
+* The embryonic ego sleeps in the round and wakes up. The ego will later call
+  this prenatal time.  The time before the separation of the opposites where
+there is still no consciousness. There is not time or history or space but
+eternity and infinity.
+
+* The question of "Whence?" has one answer - the round  and two interpretations:
+  the womb and the parents.  
+
+* Neumann states "It is crucial for every psychology, and especially for every
+  psychology of childhood to understand this problem and its symbolism.
+
+* The uroboros appears and the womb but also as the masculine and feminine in
+  perpetual union - the World Parents. The later is a symbol of the creation of
+the world not sexual. It is concerned with the origin of life, the spirit and
+the soul.  These are symbols of the collective unconscious not of the ego.
+
+One of Neumann's primary thesis' is that
+consciousness in the individual repeats the
 developmental stages of humanity. Whenever we speak of creation of the world, we
 are talking about the birth of the individual psyche. When we talk about the
 hero slaying the dragon, we are talking about the development of the individual
