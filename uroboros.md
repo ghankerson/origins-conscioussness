@@ -8,7 +8,7 @@ defending itself. Finally the ego is able to broaden its horizons.
   emancipation and is projected as the mythology of creation. 
 
 * When the world parents finally separate, the young ego asserts itself. At this
-  stage humanity become self-aware .
+  stage humanity become self-aware.
 
 * In the beginning is perfection and wholeness. The beginning though is a
   virtual stage that cannot be described rationally but only symbolically.
@@ -58,7 +58,8 @@ umanifest godhead whose symbol is the circle."
 are in perpetual embrace, and it is the end because the opposites have united
 again bringing the world to rest. 
 
-* The world parents are united and thus are male and female: the great hermaphrodite.
+* The world parents are united and thus are male and female: the or great
+  hermaphrodite.
 
 * One symbol is the T'ai C'hi containing black and white, day and night, male
   and female. This symbol is half black and half white each half containing a
@@ -83,19 +84,23 @@ the great hermaphrodite that contains the masculine and the feminine.
 
 *In the beginning the world was Soul (Atman) alone in the form of a person.
 Looking around he saw nothing else than himself. He said first: "I am." He was,
-indeed, as large as a woman and a man closely embraced. He caused that self
-(pat) into two pieces. Therefrom arose a husband and a wife.*
+indeed, as large as a woman and a man closely embraced. He caused that self to
+fall (pat) into two pieces. Therefrom arose a husband and a wife.*
 
-Similarly, Plato: *And he established the universe a sphere revolving in a
-circle, one ad solitary, yet by reason of its excellence able to bear himself
-company, and needing no other friendship or aquaintance.*
+Similarly, Plato in Timaeus writes:
+
+*And he established the universe a sphere revolving in a circle, one and
+solitary, yet by reason of its excellence able to bear himself company, and
+needing no other friendship or aquaintance.*
 
 * The perfection that rests in itself in no way contradicts the perfection
   which encircles itself.  The part that encircles is static, eternal and
 unchanging while the center is the germ cell of creativity - the potential for
-forward momentum. This circular snake or dragon that bites its own tale is the
-self-begetting uroboros of which the Egyptians say it slays, it weds, and
-impregnates itself.
+forward momentum.
+
+* This circular snake or dragon that bites its own tale is the self-begetting
+  uroboros of which the Egyptians say "it slays, it weds, and impregnates
+  itself".
 
 * The uroboros is full of contradictory opposites man and woman, giving birth
   and slaying to end life it is active and passive above and below all at once.
@@ -131,21 +136,141 @@ eternity and infinity.
 * Neumann states "It is crucial for every psychology, and especially for every
   psychology of childhood to understand this problem and its symbolism.
 
-* The uroboros appears and the womb but also as the masculine and feminine in
+* The uroboros appears as the womb but also as the masculine and feminine in
   perpetual union - the World Parents. The later is a symbol of the creation of
-the world not sexual. It is concerned with the origin of life, the spirit and
-the soul.  These are symbols of the collective unconscious not of the ego.
+  the world not sexual. It is concerned with the origin of life, the spirit and
+  the soul.  These are symbols of the collective unconscious not of the ego.
 
-One of Neumann's primary thesis' is that
-consciousness in the individual repeats the
-developmental stages of humanity. Whenever we speak of creation of the world, we
-are talking about the birth of the individual psyche. When we talk about the
-hero slaying the dragon, we are talking about the development of the individual
-psyche out of the collective unconscious. As Neumann states: ... in every
-individual life, consciousness re-experiences its emergence from the unconscious
-in the growth of childhood, and every night in sleep, dying with the sun, it
-sinks back into the depths of the unconscious, to be reborn in the morning and
-begin the day anew.  *Page 18*
+* Ancient people did not understand these themes consciously but they created
+  myths around these themes. Mythology being a product of the collective
+  unconscious shows us these themes of the uroboros via myth and symbol that are
+  from the collective unconscious.
+
+* Many ancient cultures did not even recognize the connection between sex and
+  birth. We just come from the womb and so the round of mythology is a symbolic
+  womb - a place of origin from whence we come and not just a individual where
+  we are from but a collective place where many unconscious contents lie waiting
+  to be born.  Its not a womb or a mother but Wombs or Mothers.
+
+* Symbols in this group include anything deep, an abyss, a valley, ground, the
+  sea, fountains, lakes pools the earth, the underworld, caves, a house and the
+  city. Anything big and embracing that preserves, wraps and nourishes belong to
+  this group of symbols. 
+
+* Human consciousness at this stage is nascent and under the dominance of the
+  uroboros.  The ego still sees itself as the world and the world as itself. The
+  initial stage of the infantile ego is marked by the predominance of the
+  maternal side of the uroboros.
+  
+ * In this stage the world is all embracing and the ego tires easily and sinks
+   back into the embrace of the Great Mother.  
+
+ * The Great Mother in this stage has all the positive maternal attributes:
+   nourishing, sheltering, protecting, warmth, comfort, and forgiveness. It is
+   an image of paradise that cannot be realized in adult life.
+ 
+ * The Great and Good Mother embody this stage of the uroboros and are not seen
+   again until a much later stage of development where she returns as the wise
+   Sophia as the "Mother of All Living".
+
+ * This state of perfection and contentment was never a historical one but is
+   a psychological one and we just see the outlines of it. This state has
+   a downward drag toward unconsciousness that is a natural force in the psyche.
+   The counteracting force of a drive toward consciousness is the force that
+   requires effort and striving (The Hero's Journey). The struggle between the
+   specifically human and the universally natural constitutes the history of
+   man's conscious development as ancient man continuously had to confront
+   nature to survive.
+
+ * As long as the ego is weak the downward drag toward unconsciousness is felt
+   as pleasure and safety while ego consciousness is felt as heavy and weak. As
+   long as this holds the ego submits to the uroboros.
+
+  * Neumann calls this stage uroboric incest. It is not incest in the sexual
+    sense but a symbol of return to unconsciouss. He also calls it a precursor
+    to the hierros gamos (sacred marriage) which comes later with the hero. 
+
+  * Uroboric incest is a form of re-entry to the mother or to the unconscious.
+    It is a desire to be dissolved and absorbed and is pleasureful. The Great
+    Mother takes the child bake into herself. Symbols associated with uroboric
+    incest include the cave, the earth, tomb, coffin, urn and sarcophagus. The
+    signia of death is associated with uroboric incest.
+
+  * He equates nostalgia and drunkenness as forms of uroboric incest. It is
+    self-surrender associated with an infant ego or a sick ego unable to
+    individuate further. Its can even be a tired, old ego creeping back to the
+    mother after finding fullfillment.
+	
+  * The infant ego does not experience uroboric incest as hostile even though it
+    will be annihilated. It expreiences this as a a return to innocence, safety
+    and pleasure a form of rebirth.
+
+  * So far we have addresses the maternal aspect of the uroboros, but there is
+    also the paternal aspect. The world parents is another image for the answer
+    "Where do I come from?" At the stage of the uroboros the world parents are
+    still locked in perpetual embrace. Mother and father, heaven and earth, Goad
+    and world are still one. There are not yet any opposites.
+
+  * The world parents are a symbol of everlasting life. They are the great
+    hermaphrodite and the place from which everything springs. They are the
+    force that begets, conceives, birtths itself, kills and revivifies. It
+    a symbol of the place beyond opposites but also a place of new beginning:
+    "The Wheel that rolls itself."
+
+  * The paternal side of the uroboros is the procreative thrust that kicks
+    eveything off including the evolution of time. Neumann notes that this is
+    harder to visualize than the maternal side of the uroboros. It does sound
+    quite strange to us as modern humans. Take these examples from Egyptian
+    mythology.
+
+  * From the Book of Apopis:
+  *I copulated in my hand. I joined myself with my shadow and spurted out of my
+  own mouth. I spewed forth as Shu and spat forth as Tefnut*
+
+  * From Pyramid Texts:
+  *Atum, who indulged himself in Heliopolis, took his phallus in order to arouse
+  pleasure. A brother and sister were produced, Shu and Tefnut.*
+
+ * This is a symbol of the creative beginning. The paternal side of the uroboros
+   creates a brother and a sister by joining himself with this shadow or
+   opposite (the feminine).  He calls this the image of the self-fecundating
+   primal god. Neumann suggests then that this image is better crystallized
+   later in new variations of these myths where the image moves towards
+   spiritualization. These examples help us understand the idea further. Keep in
+   mine that the Egyptian hieroglyphs for thought is the heart and speech is the
+   tongue.
+
+ *It is the heart (thought) which makes all that results come out, and it is the
+ tongue which repeats (expresses) the thought of the heart... That is what
+ causes the gods to be born. Atum with his Ennead, and every divine utterance
+ manifests itself in the the thought of the heart and the speech of the tongue.*
+
+* Finally more refined: *He did not bring me forth from his mouth, nor conceive
+  me in his hand, but he breathed me forth from his nostrils.* 
+  
+* This is all still from Egyptian myth but we are already at the point where the
+  "breath of life" is very similar to the Christian Logos.  
+
+* *"In the beginning was the Word, and the Word was with God, and the Word was
+  God"*
+  
+* Neumann suggests the expression of the Logos in the Bible never broke
+  completely from the idea of the self-fecundating, self-manifesting god.
+  
+  
+  
+  
+  
+  One of Neumann's primary thesis' is that consciousness in the individual
+  repeats the developmental stages of humanity (this comes right from Jung and
+  Nietzsche). Whenever we speak of creation of the world, we are talking about
+  the birth of the individual psyche. When we talk about the hero slaying the
+  dragon, we are talking about the development of the individual psyche out of
+  the collective unconscious. As Neumann states: ... in every individual life,
+  consciousness re-experiences its emergence from the unconscious in the growth
+  of childhood, and every night in sleep, dying with the sun, it sinks back into
+  the depths of the unconscious, to be reborn in the morning and begin the day
+  anew.  *Page 18*
 
 This book is all myth, symbols and archetypes. Neumann describes symbols as
 coming from the collective unconscious and they are not logical or rationale. To
