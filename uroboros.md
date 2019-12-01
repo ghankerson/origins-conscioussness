@@ -186,42 +186,42 @@ eternity and infinity.
    as pleasure and safety while ego consciousness is felt as heavy and weak. As
    long as this holds the ego submits to the uroboros.
 
-  * Neumann calls this stage uroboric incest. It is not incest in the sexual
-    sense but a symbol of return to unconsciouss. He also calls it a precursor
-    to the hierros gamos (sacred marriage) which comes later with the hero. 
+ * Neumann calls this stage uroboric incest. It is not incest in the sexual
+   sense but a symbol of return to unconsciouss. He also calls it a precursor
+   to the hierros gamos (sacred marriage) which comes later with the hero. 
 
-  * Uroboric incest is a form of re-entry to the mother or to the unconscious.
-    It is a desire to be dissolved and absorbed and is pleasureful. The Great
-    Mother takes the child bake into herself. Symbols associated with uroboric
-    incest include the cave, the earth, tomb, coffin, urn and sarcophagus. The
-    signia of death is associated with uroboric incest.
+ * Uroboric incest is a form of re-entry to the mother or to the unconscious.
+   It is a desire to be dissolved and absorbed and is pleasureful. The Great
+   Mother takes the child bake into herself. Symbols associated with uroboric
+   incest include the cave, the earth, tomb, coffin, urn and sarcophagus. The
+   signia of death is associated with uroboric incest.
 
-  * He equates nostalgia and drunkenness as forms of uroboric incest. It is
-    self-surrender associated with an infant ego or a sick ego unable to
-    individuate further. Its can even be a tired, old ego creeping back to the
-    mother after finding fullfillment.
+ * He equates nostalgia and drunkenness as forms of uroboric incest. It is
+   self-surrender associated with an infant ego or a sick ego unable to
+   individuate further. Its can even be a tired, old ego creeping back to the
+   mother after finding fullfillment.
 	
-  * The infant ego does not experience uroboric incest as hostile even though it
-    will be annihilated. It expreiences this as a a return to innocence, safety
-    and pleasure a form of rebirth.
+ * The infant ego does not experience uroboric incest as hostile even though it
+   will be annihilated. It expreiences this as a a return to innocence, safety
+   and pleasure a form of rebirth.
 
-  * So far we have addresses the maternal aspect of the uroboros, but there is
-    also the paternal aspect. The world parents is another image for the answer
-    "Where do I come from?" At the stage of the uroboros the world parents are
-    still locked in perpetual embrace. Mother and father, heaven and earth, Goad
-    and world are still one. There are not yet any opposites.
+ * So far we have addresses the maternal aspect of the uroboros, but there is
+   also the paternal aspect. The world parents is another image for the answer
+   "Where do I come from?" At the stage of the uroboros the world parents are
+   still locked in perpetual embrace. Mother and father, heaven and earth, Goad
+   and world are still one. There are not yet any opposites.
 
-  * The world parents are a symbol of everlasting life. They are the great
-    hermaphrodite and the place from which everything springs. They are the
-    force that begets, conceives, birtths itself, kills and revivifies. It
-    a symbol of the place beyond opposites but also a place of new beginning:
-    "The Wheel that rolls itself."
+ * The world parents are a symbol of everlasting life. They are the great
+   hermaphrodite and the place from which everything springs. They are the
+   force that begets, conceives, birtths itself, kills and revivifies. It
+   a symbol of the place beyond opposites but also a place of new beginning:
+   "The Wheel that rolls itself."
 
-  * The paternal side of the uroboros is the procreative thrust that kicks
-    eveything off including the evolution of time. Neumann notes that this is
-    harder to visualize than the maternal side of the uroboros. It does sound
-    quite strange to us as modern humans. Take these examples from Egyptian
-    mythology.
+ * The paternal side of the uroboros is the procreative thrust that kicks
+   eveything off including the evolution of time. Neumann notes that this is
+   harder to visualize than the maternal side of the uroboros. It does sound
+   quite strange to us as modern humans. Take these examples from Egyptian
+   mythology.
 
   * From the Book of Apopis:
   *I copulated in my hand. I joined myself with my shadow and spurted out of my
@@ -249,7 +249,7 @@ eternity and infinity.
   me in his hand, but he breathed me forth from his nostrils.* 
   
 * This is all still from Egyptian myth but we are already at the point where the
-  "breath of life" is very similar to the Christian Logos.  
+  "breath of life" is very similar to the idea of the Christian Logos.  
 
 * *"In the beginning was the Word, and the Word was with God, and the Word was
   God"*
