@@ -257,20 +257,75 @@ eternity and infinity.
 * Neumann suggests the expression of the Logos in the Bible never broke
   completely from the idea of the self-fecundating, self-manifesting god.
   
+* The action of creation is anthropomorphized. Creation happens by thought first
+  and then speech. In Indian mythology this is expressed as follows:
+
+* *He, Prajapati, took to praying and fasting, because he desired offspring, and
+  he made himself fruitful.*
+
+* Here we again have the paternal self-fecundating god who reproduces via prayer
+  and fasting.
+
+* In Indian myth we heat being expressed as thought for creation:
+
+* *In the beginning the world was nothing at all. Heaven was not, nor earth, nor
+  space. Because it was not, it bethought itself.: I will be. It emitted heat.*
+
+* Neumann notes that the creation myth and the uroboros can emphasize the
+  masculine or the feminine.  Creation can happen with either. Sexual symbolism
+  alone cannot express the idea of creation of the world from nothing  so an
+  image or symbol of the uroboros shows male and female together - the world
+  parents - both capable of creation. There is no differentiation of the
+  opposites in this stage. It is before the before.
   
-  
-  
-  
-  One of Neumann's primary thesis' is that consciousness in the individual
-  repeats the developmental stages of humanity (this comes right from Jung and
-  Nietzsche). Whenever we speak of creation of the world, we are talking about
-  the birth of the individual psyche. When we talk about the hero slaying the
-  dragon, we are talking about the development of the individual psyche out of
-  the collective unconscious. As Neumann states: ... in every individual life,
-  consciousness re-experiences its emergence from the unconscious in the growth
-  of childhood, and every night in sleep, dying with the sun, it sinks back into
-  the depths of the unconscious, to be reborn in the morning and begin the day
-  anew.  *Page 18*
+* The creative force is expressed as the creative word, the creative breath but
+  is just an abstraction of the procreative wind, spirit or inspiration.
+  Neumann notes: this wind is the fructifying bird, the solar phallus, that
+  blows and makes fertile.
+
+* The One who stands at the beginning is the creative force of the World
+  Parents from whom the creative inspiration blows, begets, gives birth, moves,
+  breaths and speaks.
+
+* Even though the ego experiences the uroboros as dark unconscious power there
+  is still a sense if it as extra-worldly knowledge that is acquired before
+  birth or after death. 
+   
+* In the Tibetan Book of the Dead the dead receive instruction which culminates
+  in knowledge that he shall know himself as the white light beyond life and
+  death. 
+
+* This is post-conscious knowledge but also pre-conscious knowledge. The Jewish
+  midrash says that over the head of a unborn babe there is a light that burns
+  and sees all the ends of the world. The unborn is still a part of the primal
+  ocean or uroboros - beginning and end - alpha and omega. In some myths
+  creatures come up from the sea and impart wisdom from this realm.
+
+* The ring of life and death is a closed circuit. The dead man instructed in the
+  Tibetan Book of the Dead will be born again in this wheel of life.
+   
+* Some ancient or traditional societies treat children with great respect
+  because they are closer to this pre-conscious wisdom. Neumann calls this
+  transpersonal knowledge. The child is the ancestor reborn.
+
+* Jung said that Psychologically the collective unconscious is the repository of
+  ancestral experience so the child is the carrier of this experience and the is
+  the symbolic ancestor.
+   
+   
+   
+   
+   
+One of Neumann's primary thesis' is that consciousness in the individual
+repeats the developmental stages of humanity (this comes right from Jung and
+Nietzsche). Whenever we speak of creation of the world, we are talking about
+the birth of the individual psyche. When we talk about the hero slaying the
+dragon, we are talking about the development of the individual psyche out of
+the collective unconscious. As Neumann states: ... in every individual life,
+consciousness re-experiences its emergence from the unconscious in the growth
+of childhood, and every night in sleep, dying with the sun, it sinks back
+into the depths of the unconscious, to be reborn in the morning and begin the
+day anew. *Page 18*
 
 This book is all myth, symbols and archetypes. Neumann describes symbols as
 coming from the collective unconscious and they are not logical or rationale. To
@@ -324,20 +379,20 @@ or ego and world. It is paradisal as all is provided for and there is no
 suffering. "An embryonic ego still undeveloped germ of ego consciousness
 slumbers in the perfect round." 
 
-Neumann quotes Plato as an example in this example: Therefore the demuriege made
-the world in the shape of a sphere, giving it that figure which of all is the
-most perfect and equal of itself.  
+Neumann quotes Plato as an example in this example: *Therefore the demuriege
+made the world in the shape of a sphere, giving it that figure which of all is
+the most perfect and equal of itself.*  
 
-He also cites Lao-tzu on again the t'ai chi: There was something formless yet
+He also cites Lao-tzu on again the t'ai chi: *There was something formless yet
 complete, That existed before heaven and earth, Without sound, without
 substance, Depending on nothing, unchnaging, All pervading, unfailing, One may
-think of it as the mother of all things under heaven.
+think of it as the mother of all things under heaven.*
 
 The round or uroboros can also be interpreted as the World Parents - the union
 of feminine and masculine opposites in perpetual embrace. From Babylonian myth:
-When on high the heaven had not been named Firm ground below had not been called
-by name, Naught but primordial Apsu, their begetter, (And) Mummu-Tiamat, she who
-bore them all, Their waters comingling as a single body.
+*When on high the heaven had not been named Firm ground below had not been
+called by name, Naught but primordial Apsu, their begetter, (And) Mummu-Tiamat,
+she who bore them all, Their waters comingling as a single body.*
 
 ####Creation or Birth
 So while the World Parents present a picture of static
@@ -355,20 +410,21 @@ named Shu as “life” and Tefnut as “order” and entwined them together.	[A
 Egypt Online](https://ancientegyptonline.co.uk/atum/).
 
 In other versions of the Egyptian creation myth Atum create offspring via
-masturbation. From the book of Apopis: Atum, who indulged himself in Heliopolis,
-took his phalis in his hand to arouse pleasure, a brohter and sister were
-produced Shu and Tefnut.
+masturbation. From the book of Apopis: *Atum, who indulged himself in
+Heliopolis, took his phalis in his hand to arouse pleasure, a brohter and sister
+were produced Shu and Tefnut.*
 
 Neumann notes how this kind of creation myth becomes more sophisticated over
 time and leans into the idea of spiritualization or inspiration. Hindi myths
 express how thinking and introversion are the equivalent of emitting heat a
 creative force:
 
-	He found foothold on the earth. When he had found a firm foothold there,
-he thought: I will propagate myself. He emitted heat and became pregnant.
+	*He found foothold on the earth. When he had found a firm foothold
+	there, he thought: I will propagate myself. He emitted heat and became
+	pregnant.*
 
-Thought, and introversion become spirit and later in Christianity the Logos: In
-the beginning was the Word, and the Word was with God, and the Word was God.
+Thought, and introversion become spirit and later in Christianity the Logos: *In
+the beginning was the Word, and the Word was with God, and the Word was God.*
 John 1:1	
 
 Neumann states that even the Logos still hints at the uroboric idea of the
