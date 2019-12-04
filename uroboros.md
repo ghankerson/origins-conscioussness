@@ -311,10 +311,31 @@ eternity and infinity.
 * Jung said that Psychologically the collective unconscious is the repository of
   ancestral experience so the child is the carrier of this experience and the is
   the symbolic ancestor.
+
+* In the uroboric stage we also have body symbolism belly = instinct, breast and
+  heart = feeling,  and head and rain = spirit or thought.
+
+* The body scheme is the archetype of the original man in whose image the world
+  has been created. 
    
+* Ancient man's fear of magical influence because every part of the body can
+  stand for the body as the whole. In creation symbolism any bodily output is
+  creative: semen, feces, spit breath, words, and urine. The world is created
+  from all of it.
+
+* The child emphasizes the visceral region. For the Greeks the midriff was the
+  seat of consciousness. For the Egyptians and Indians the heart was the seat.
+  In both cases thought is bound up with emotion - they are not yet separate.
+  The heart is also the center of ethical decision-making. The intestinal
+  processes of the alimentary track are lover and more fundamental. A sated
+  person acts differently than and hungry one. The infantile ego sees the
+  maternal uroboros as the source of food and satisfaction.
+
+* The uroboros is call the tail-eater and this early stage is dominated by the
+  symbol of the alimentary canal. The strong eat the weak and the weak are eaten
+  by the strong. Hunger is the primer mover not sex.
    
-   
-   
+* Eating = intake, birth = output food is the content. Life = power = food.
    
 One of Neumann's primary thesis' is that consciousness in the individual
 repeats the developmental stages of humanity (this comes right from Jung and
