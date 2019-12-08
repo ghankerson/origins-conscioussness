@@ -227,8 +227,8 @@ eternity and infinity.
   *I copulated in my hand. I joined myself with my shadow and spurted out of my
   own mouth. I spewed forth as Shu and spat forth as Tefnut*
 
-  * From Pyramid Texts:
-  *Atum, who indulged himself in Heliopolis, took his phallus in order to arouse
+* From Pyramid Texts:
+* *Atum, who indulged himself in Heliopolis, took his phallus in order to arouse
   pleasure. A brother and sister were produced, Shu and Tefnut.*
 
  * This is a symbol of the creative beginning. The paternal side of the uroboros
@@ -240,7 +240,7 @@ eternity and infinity.
    mine that the Egyptian hieroglyphs for thought is the heart and speech is the
    tongue.
 
- *It is the heart (thought) which makes all that results come out, and it is the
+* *It is the heart (thought) which makes all that results come out, and it is the
  tongue which repeats (expresses) the thought of the heart... That is what
  causes the gods to be born. Atum with his Ennead, and every divine utterance
  manifests itself in the the thought of the heart and the speech of the tongue.*
@@ -336,17 +336,57 @@ eternity and infinity.
   by the strong. Hunger is the primer mover not sex.
    
 * Eating = intake, birth = output food is the content. Life = power = food.
-   
+
+* Food symbolism as cosmic content where the uroboros consumes food in its
+  destructive aspect (destructive in order to be creative).  This is the
+  uroboros as the tail-eater. From Sanskrit myth: *From food all creatures
+  are produced, All creatures that dwell on earth. By food they live And
+  into food they finally pass. Food is the chief among beings. Therfore
+  they call it the panacea. Verily he obtains all food. Who worhships
+  Brahma as food. For food is the chief among beings. Therefore they call
+  it a panacea. All creatures are born of food. By food they continue to
+  grow. Creatures feed on it, it upon creatures, Therefore it is called
+  food. 
+  
+  Brahma arises through tapas. From Brahma comes food. From food-breath,
+  spirit, truth,  Worlds, and in works, immortality.*
+
+* We can see the uroboros in creative and destructive modes. It creates
+  food of itself, to feed itself, destroy itself and recreate itself - and
+  infinite loop. The destruction or eating can be seen as a sacrifice to
+  the gods.
+
+* We still have vestiges of these ideas in phrases we use today:
+	* "He is consumed by his work"
+	* "A consuming disease"
+	* "Eaten up with jealousy"
+	* "Death's maw"
+	* "A devouring war"
+
+* Vedic myth:
+  *Whatever he brought fort, he resolved to eat. Because he eats
+  everything he is called infinite.  Therefore he who knows the essence of
+  aditi, becomes  the eater of the world; everything becomes food for
+  him.*
+
+* The act of eating or inwardly digesting means to having possessing and
+  having power over it.  Conscious realization is eating. 
+
+* This is expressed in Indian, Egyptian, and Christian myth. Liquor,
+  fruit, herbs, water and bread appear as vehicles of immortality.
+  Psychologically, the outside content is experienced symbolically.
+
+
 One of Neumann's primary thesis' is that consciousness in the individual
-repeats the developmental stages of humanity (this comes right from Jung and
-Nietzsche). Whenever we speak of creation of the world, we are talking about
-the birth of the individual psyche. When we talk about the hero slaying the
-dragon, we are talking about the development of the individual psyche out of
-the collective unconscious. As Neumann states: ... in every individual life,
-consciousness re-experiences its emergence from the unconscious in the growth
-of childhood, and every night in sleep, dying with the sun, it sinks back
-into the depths of the unconscious, to be reborn in the morning and begin the
-day anew. *Page 18*
+repeats the developmental stages of humanity (this comes right from Jung
+and Nietzsche). Whenever we speak of creation of the world, we are talking
+about the birth of the individual psyche. When we talk about the hero
+slaying the dragon, we are talking about the development of the individual
+psyche out of the collective unconscious. As Neumann states: ... in every
+individual life, consciousness re-experiences its emergence from the
+unconscious in the growth of childhood, and every night in sleep, dying
+with the sun, it sinks back into the depths of the unconscious, to be
+reborn in the morning and begin the day anew. *Page 18*
 
 This book is all myth, symbols and archetypes. Neumann describes symbols as
 coming from the collective unconscious and they are not logical or rationale. To
