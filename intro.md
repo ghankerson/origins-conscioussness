@@ -228,18 +228,22 @@ mythology. To the extent he can Neumann is trying to survey all of mythology and
 determines its outlines.  In theses outlines he sees the stages of the growth of
 consciousness of the individual and of humanity.
 
+In this book Neumann tries (to the extent this is even possible) to survey
+all myth and find a common thread of themes that can be surfaced.
+
 This idea of the individual repeating the stages of growth of the species is an
 idea Jung took from Friedrich Nietzsche. 
 
 Passing through each stage, the ego transforms its relationship to the
-archetypes. "The ability to perceive, to understand, and to interpret these
-images is a process of succession in time, ..  it takes place in stages." This
-ability to absorb unconscious contents improves at each stage and leads to
-individual transformation and improvement. Jung called this telos which means
-self-realization. At each stage the individual can look at its relationship to
-these core archetypes with increasing wisdom and light. It's as if we get
-another bite at the apple at each stage being wiser and more conscious of the
-complexes and archetypes that influence us in our actions.
+archetypes. "The ability to perceive, to understand, and to interpret
+these images is a process of succession in time, ..  it takes place in
+stages." This ability to absorb unconscious contents improves at each
+stage and leads to individual transformation and improvement. Jung called
+this telos which means self-realization. At each stage the individual can
+look at its relationship to these core archetypes with increasing wisdom
+and light. It's as if we get another bite at the apple at each stage being
+wiser and more conscious of the complexes and archetypes that influence us
+in our actions.
 
 We can get a feel for these stages composed of archetypes by just examining the
 section titles of the book. We will do a podcast episode about each of these.
@@ -297,7 +301,8 @@ these myths into the individual psyche.
  
 ## Podcast conclusion
 
-I am passionate about learning about  his fascinating and tantalizing intersection of myth and psychology and
-I hope you will join me on this journey. As we progress through the
+I am passionate about learning about this fascinating and tantalizing
+intersection of myth and psychology and I hope you will join me on this
+journey. As we progress through the
 podcast we will use use movies, myths and fairy tales to make these
 concepts less abstract and more relatable.  Subscribe.
