@@ -170,7 +170,7 @@ this is a difficult  even terrifying process, especially at first.
 
 Jung thought there was a core or nuclear element to a complex. This element is
 what he called archetypes of the collective unconscious. This nucleus of the
-complex provides the surface area where a complex and an archetype touch and
+complex provides the surface area where a complex and an archetype touch an
 individual.
 
 ### The Collective Unconscious
