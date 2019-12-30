@@ -53,7 +53,7 @@ as enlightening for you as it is for me.
 * Back to Peterson's interpretation of the Lion King.  I think he is
   interpreting the symbolism correctly or at least a correct interpretation. 
 
-* The strange thing about symbolism is we understand them at some level but they
+* The strange thing about symbols is we understand them at some level but they
   are very hard to explain verbally rationally.  Symbols stirs us but they are
   so hard to put our finger on.   Symbols often point to things we have
   consciously forgotten but are still there at an unconscious level so they
