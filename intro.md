@@ -1,4 +1,4 @@
-# The Gods Within
+# The Gods Within Episode One
 
 ## An review of Erich Neumann's "The Origins and History of Consciousness"
 
@@ -201,6 +201,7 @@ and making them conscious thus promoting individual growth.
 
 ## Book Introduction
 
+### Introduction to the Introduction
 What is Neumann trying to accomplish in this book? We don't have to read far to
 answer this question. In the first sentence of the introduction he states: "The
 following attempt outline the archetypal stages of the development of
@@ -234,6 +235,7 @@ all myth and find a common thread of themes that can be surfaced.
 This idea of the individual repeating the stages of growth of the species is an
 idea Jung took from Friedrich Nietzsche. 
 
+### Stages of the Development of Consciousness
 Passing through each stage, the ego transforms its relationship to the
 archetypes. "The ability to perceive, to understand, and to interpret
 these images is a process of succession in time, ..  it takes place in
@@ -244,6 +246,22 @@ look at its relationship to these core archetypes with increasing wisdom
 and light. It's as if we get another bite at the apple at each stage being
 wiser and more conscious of the complexes and archetypes that influence us
 in our actions.
+
+In each of these stages we see the position of the individual (ego) in
+relation to the symbolic feminine and masculine. The ego position shifts
+in relation to the symbolic feminine and masculine at each stage. In the
+beginning - the creation stage - the masculine and feminine are united and
+the ego sees itself as indistinct from the unified masculine and feminine.
+He calls this stage the uroboros. In the next stage, The Great Mother, the
+masculine is diminished and the feminine dominates in largely a negative
+connotation as it prevents the young ego from blossoming. As we proceed
+through he next stages the ego becomes independent. These stages are  the
+separation of the world parents, the birth of the hero, the slaying of the
+mother (or the dragon fight), the slaying of the father and finally the
+captive and the treasure and the transformation or Osiris. The symbol
+then in the final stage is the mandala where unity is again achieved but
+the individual now joins in the embrace of the symbolic feminine and
+masculine as a conscious participant.
 
 We can get a feel for these stages composed of archetypes by just examining the
 section titles of the book. We will do a podcast episode about each of these.
@@ -264,13 +282,14 @@ C. The Transformation Myth
 	II. Transformation or Osiris
 
 
-
+Each of these stages is a chapter in  the book and will have one or
+podcasts dedicated to them.  
 
 Human consciousness has absorbed more and more unconscious contents over
 thousands of years and in this process expands its own frontiers. Neumann
-suggests that in the West consciousness has achieved continuity where each stage
-is integrated. According to Neumann modern consciousness sits on this
-integration.
+suggests that in the West consciousness has achieved continuity where each
+stage is integrated. According to Neumann modern consciousness sits on
+this integration.
 
 Now when he says West this includes ancient Babylon and Egypt. I am really
 excited to get into this aspect of the book because its absolutely fascinating.
@@ -292,17 +311,20 @@ development of the psyche and synthesis of the personality  thus it has a
 therapeutic aim as well. In this process the psyche expands leading to new
 solutions and new problems which trigger the whole process again. The collective
 human aspect is rediscovered and begins to come alive, new insights, new
-possibilities of life add themselves to the narrowly personalistic and rigid
-personality of the sick-souled modern man." 
-
+possibilities of life add themselves to the narrowly personalistic and
+rigid personality of the sick-souled modern man."  
 The development of consciousness from the unconscious in myth is the focus of the
 first half of the book while the second half focuses on the internalization of
 these myths into the individual psyche.
  
 ## Podcast conclusion
 
-I am passionate about learning about this fascinating and tantalizing
-intersection of myth and psychology and I hope you will join me on this
-journey. As we progress through the
+Going back to the idea of symbols being part recognizable and at the same
+time part unrecognizable, we see that Neumann illuminates an understanding
+of these symbols in our collective and individual psyches.  Understanding
+them is understanding ourselves.  Us moderns have forgotten how to think
+symbolically and we need to remember.  I am passionate about learning
+about this fascinating and tantalizing intersection of myth and psychology
+and I hope you will join me on this journey. As we progress through the
 podcast we will use use movies, myths and fairy tales to make these
-concepts less abstract and more relatable.  Subscribe.
+concepts less abstract and more relatable. Subscribe.
