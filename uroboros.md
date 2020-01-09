@@ -16,7 +16,7 @@ reason cannot be clearly or characteristically represented."
 
 Symbols are at the core of of the psyche according to Jungian psychology rich
 with visual information that can be interpreted in many often contradictory
-ways. 
+ways. They are the language of the collective and individual unconscious. 
 
 Symbols and images are not rational statements and do not hold up to logic.
 Rather they surround an idea describing it from many sides. The psyche works
@@ -101,6 +101,12 @@ to make sense of from a logical standpoint so we need to circle around it and
 view it from many angles to make sense of the multiple aspects and
 contradictions in this symbol group.
 
+The symbol Neumann lands on as his primary metaphor for creation myth stage of
+the development of consciousness is the Uroboros. The Uroboros is an Egyptian
+symbol for a cosmic creature that slays, weds and impregnates itself. A common
+visual symbol for the uroboros is a snake eating its tail. It is seen in myths
+of Egypt, India, Babylon, Rome, Navajo, Mexico and even in the Revelation of St.
+John.  
 
 ##  The Uroboros
 
@@ -126,308 +132,29 @@ non-differentiation or the absence of opposites. The modern mind only sees
 this as paradox but symbols and images can contain this contradiction and
 still be whole. 
 
+What is so "illogical" about these symbols is they do mean the beginning and the
+end, plenitude and nothingness, birth, life, death and resurrection all at the
+same time.
+
+One of Neumann's primary thesis' is that consciousness in the individual
+repeats the developmental stages of humanity (this comes right from Jung
+and Nietzsche). Whenever we speak of creation of the world, we are talking
+about the birth of the individual psyche. When we talk about the hero
+slaying the dragon, we are talking about the development of the individual
+psyche out of the collective unconscious. As Neumann states: ... in every
+individual life, consciousness re-experiences its emergence from the
+unconscious in the growth of childhood, and every night in sleep, dying
+with the sun, it sinks back into the depths of the unconscious, to be
+reborn in the morning and begin the day anew. *Page 18*
+
+
+### Where am I from? The Womb and The World Parents
+
 Even though the uroboros symbol group emphasizes the union of the opposites --
 the symbolic male and symbolic female -- the feminine or masculine aspects of
 the uroboros can be still be discerned and emphasized. It is not that the
 opposites do not exist at this stage, but that they are united.
 
-The round or uroboros can also be interpreted as the World Parents - the union
-of feminine and masculine opposites in perpetual embrace. From Babylonian myth:
-*When on high the heaven had not been named Firm ground below had not been
-called by name, Naught but primordial Apsu, their begetter, (And) Mummu-Tiamat,
-she who bore them all, Their waters comingling as a single body.*
-
-
-## The Stages of Uroboric Autarchy
-
-When Neumann speaks of uroboric autacracy he is simply saying the uroboros
-is dominating over the ego at this stage. 
-
-### The Pleromatic Stage
-#### Introduction
-
-This first stage he describes as "the pleromatic" (divine plenitude) stage
-of paradisal perfection in the unborn, the embryonic stage of the ego,
-which a later consciousness will contrast with suffering of the
-non-autacratic ego in the world."
-
-This needs some unpacking. This first sub-stage is before consciousness, before
-ego and before history. Since it is before it is a virtual or a priori stage.
-The analogy here is like the child in the womb of its mother. The mother or the
-womb provides all, and in fact there is no distinction between child and mother
-or ego and world. It is paradisal as all is provided for and there is no
-suffering. "An embryonic ego still undeveloped germ of ego consciousness
-slumbers in the perfect round." 
-
-In the beginning is perfection and wholeness. The beginning though is a
-virtual stage that cannot be described rationally but only symbolically.
-
-As soon as the rational mind tries grab on to this idea of the beginning plus
-end, creation plus destruction, the idea slips through the fingers. For this
-reason a symbol stands at the beginning. 
-
-The beginning can be seen as two places the birth of the world and of the
-individual. 
-
-The beginning projects itself mythologically as the beginning of the world.
-These myths begin with the world because in this virtual stage there is no
-separation between the world and the individual psyche. The individual psyche
-is "knows itself as the world and in the world experiences the its own
-becoming as world becoming, its own images as the starry heavens and its own
-contents as the world-creating gods."
-
-In virtually all myths creation is the creation of light which is symbolically
-consciousness. Consciousness as light in contrast to the darkness of the
-unconscious is the real object of creation mythology.
-
-Before the light we still have the virtual stage of creation which precedes
-the light is surrounded by a series of symbols. 
-
-
-#### The Maternal Uroboros
-
-One aspect of the uroboros is the part that encircles or contains. This aspect
-is seen primarily as maternal.  Human consciousness at this stage is nascent
-and under the dominance of the uroboros. Remember that for Neumann the ego sees
-itself differently in each stage of consciousness. The ego still sees itself
-as the world and the world as itself. The initial stage of the infantile ego is
-marked by the predominance of the maternal side of the uroboros.
-
-In this stage the world is all embracing and the ego tires easily and sinks
-back into the embrace of the Great Mother.  
-
-The Great Mother in this stage has all the positive maternal attributes:
-nourishing, sheltering, protecting, warmth, comfort, and forgiveness. It is an
-image of paradise that cannot be realized in adult life.
-
-The Garden of Eden is a great example of maternal aspect of the uroboros. The
-walled garden encircles, protects, provides and nourishes.
-
-The Great and Good Mother embody this stage of the uroboros and are not seen
-again until a much later stage of development where she returns as the
-wise Sophia as the wise "Mother of All Living". In subsequent stages the
-feminine aspect appears as the terrible or devouring mother.
-
-
-##### Uroboric Incest
-
-Neumann notes that the natural impulse of the pleromatic stage is not for
-consciousness to bubble up, but for the ego to return to a restful state in the
-uroboros. He calls this "uroboric incest" or and entry back into the mother
-(womb). As the nascent ego sparks into existence it's tendency is to return to
-unity with the mother. There is no pleasure or sexual meaning here. Neumann
-describes this as "passively letting oneself being taken". We can see how this
-image could be associated with longing, nostalgia, depression or even suicidal
-ideation. This is a negative reflection of the *hierros gamos* or sacred
-marriage (union of heaven and earth) that can occur in later stages of
-consciousness development. Since uroboric incest is a return to the mother or
-earth it is a kind of death that can be symbolized by a tomb, sarcophagus,
-cave, coffin or sunset. As the symbolism of the uroboros suggests the ego or
-child is then reborn at sunrise.
-
-As long as the ego is weak the downward drag toward unconsciousness is felt as
-pleasure and safety while ego consciousness is felt as heavy and weak. As long
-as this holds the ego submits to the uroboros.
-
-Neumann calls this downward drag uroboric incest. It is not incest in the
-sexual sense but a symbol of return to unconscious. He also calls it
-a precursor to the hierros gamos (sacred marriage) which comes later with the
-hero reunifying with the round which is a mandala in the later stage. 
-
-Uroboric incest is a form of re-entry to the mother or to the unconscious. It
-is a desire to be dissolved and absorbed and is pleasureful. The Great Mother
-takes the child back into herself. Symbols associated with uroboric incest
-include the cave, the earth, tomb, coffin, urn and sarcophagus. The signia of
-death is associated with uroboric incest.
-
-This death however is seen as pleasurable an reunion with the Great Mother
-who is all providing.
-
-
-### The Stage of the Alimentray Uroboros
-
-#### Body Symbolism
-* In the uroboric stage we also have body symbolism belly = instinct, breast and
-  heart = feeling,  and head and rain = spirit or thought.
-
-* The body scheme is the archetype of the original man in whose image the world
-  has been created. 
-   
-* Ancient man's fear of magical influence because every part of the body can
-  stand for the body as the whole. In creation symbolism any bodily output is
-  creative: semen, feces, spit breath, words, and urine. The world is created
-  from all of it.
-
-* The child emphasizes the visceral region. For the Greeks the midriff was the
-  seat of consciousness. For the Egyptians and Indians the heart was the seat.
-  In both cases thought is bound up with emotion - they are not yet separate.
-  The heart is also the center of ethical decision-making. The intestinal
-  processes of the alimentary track are lover and more fundamental. A sated
-  person acts differently than and hungry one. The infantile ego sees the
-  maternal uroboros as the source of food and satisfaction.
-
-#### Food Symbolism
-
-The symbolism here focuses on consumption of food or prey and bodily
-output as birth. The serpent consumes its own waste as food and thus recreates
-itself. This creates the circle or ring that binds.
-
-The uroboros is call the tail-eater and this early stage is dominated by
-the symbol of the alimentary canal. The strong eat the weak and the weak
-are eaten by the strong. Hunger is the primer mover not sex.
- 
-Eating = intake, birth = output food (later speech). Life
-= power = food.
-
-Food symbolism as cosmic content where the uroboros consumes food in its
-destructive aspect (destructive in order to be creative).  This is the
-uroboros as the tail-eater. From Sanskrit (Indian) myth:
-
-*From food all creatures are produced, All creatures that dwell on earth. By
-food they live And into food they finally pass. Food is the chief among
-beings. Therfore they call it the panacea. Verily he obtains all food. Who
-worhships Brahma as food. For food is the chief among beings. Therefore they
-call it a panacea. All creatures are born of food. By food they continue to
-grow. Creatures feed on it, it upon creatures, Therefore it is called food. 
-
-Brahma arises through tapas. From Brahma comes food. From food-breath,
-spirit, truth,  Worlds, and in works, immortality.*
-
-We can see the uroboros in creative and destructive modes. It creates
-food of itself, to feed itself, destroy itself and recreate itself - and
-infinite loop. The destruction or eating can be seen as a sacrifice to
-the gods.
-
-We still have vestiges of these ideas in phrases we use today:
-      * "He is consumed by his work"
-      * "A consuming disease"
-      * "Eaten up with jealousy"
-      * "Death's maw"
-      * "A devouring war"
-
-Vedic myth:
-*Whatever he brought fort, he resolved to eat. Because he eats
-everything he is called infinite.  Therefore he who knows the essence of
-aditi, becomes the eater of the world; everything becomes food for
-him.*
-
-The act of eating or inwardly digesting means to having possessing and
-having power over it.  Conscious realization is eating. 
-
-This is expressed in Indian, Egyptian, and Christian myth. Liquor,
-body and blood of Christ in communion). Psychologically, the outside
-content is experienced internally. Eating becomes conscious assimilation
-of content.
-
-The maternal aspect of the uroboros looms over all of this food
-symbolism. Need is hunger and satisfaction is satiety. He calls this
-a pre-genital stage. To be satisfied is to eat. To express or to speak
-means to excrete or spit at this stage.  
-
-The bodily functions symbolizes a psychological process as well.
-Consuming the gods is a spiritual act. The ingestion of this content
-produces a change. Transformation of cells through food intake is
-a basic change experienced by man.  A hungry, weak man can be
-transformed into a satisfied and strong one through consuming food.
-
-
-
-### The Genital-Masturbatory Stage (The Self Creating God and the Logos)
-
-#### The Paternal Uroboros - the Creative Spark and the Logos
-So while the World Parents present a picture of static
-pre-history - the perpetual embrace, we need a related but perhaps contradictory
-symbol for birth.  Since the uroboros is in part the beginning, birth, creation,
-or the wheel that rolls itself we find myths of self-impregnating gods
-(pro)creating without a partner.  In Egyptian theology the god Atum procreates
-by himself. From the Egyptian Pyramid Text:
-
-*In the beginning there was nothing (Nun). A mound of earth rose from Nun
-and upon it Atum created himself.  He spat Shu (air) and Tefnut (moisture)
-from his mouth.  Atum’s two offspring became separated from him and lost
-in the dark nothingness, so Atum sent his “Eye” to look for them.  When
-they were found, he named Shu as “life” and Tefnut as “order” and entwined
-them together.*	[Ancient Egypt
-Online](https://ancientegyptonline.co.uk/atum/).
-
-In other versions of the Egyptian creation myth Atum create offspring via
-masturbation. From the book of Apopis: *Atum, who indulged himself in
-Heliopolis, took his phalis in his hand to arouse pleasure, a brohter and sister
-were produced Shu and Tefnut.*
-
-Neumann notes how this kind of creation myth becomes more sophisticated over
-time and leans into the idea of spiritualization or inspiration. Hindi myths
-express how thinking and introversion are the equivalent of emitting heat a
-creative force:
-
-	*He found foothold on the earth. When he had found a firm foothold
-	there, he thought: I will propagate myself. He emitted heat and became
-	pregnant.*
-
-Thought, and introversion become spirit and later in Christianity the Logos: *In
-the beginning was the Word, and the Word was with God, and the Word was God.*
-John 1:1	
-
-Neumann states that even the Logos still hints at the uroboric idea of the
-self-manifesting god. 
-
-The paternal side of the uroboros is the procreative thrust that kicks
-everything off including the evolution of time. Neumann notes that this is
-harder to visualize than the maternal side of the uroboros. It does sound
-quite strange to us as modern humans. Take these examples from Egyptian
-mythology.
-
-From the Book of Apopis: *I copulated in my hand. I joined myself with my
-shadow and spurted out of my own mouth. I spewed forth as Shu and spat forth
-as Tefnut*
-
-From Pyramid Texts: *Atum, who indulged himself in Heliopolis, took his
-phallus in order to arouse pleasure. A brother and sister were produced, Shu
-and Tefnut.*
-
-This is a symbol of the creative beginning. The paternal side of the uroboros
-creates a brother and a sister by joining himself with this shadow or opposite
-(the feminine).  He calls this the image of the self-fecundating primal god.
-Neumann suggests then that this image is better crystallized later in new
-variations of these myths where the image moves towards spiritualization.
-These examples help us understand the idea further. Keep in mine that the
-Egyptian hieroglyphs for thought is the heart and speech is the tongue.
-
-*It is the heart (thought) which makes all that results come out, and it is the
-tongue which repeats (expresses) the thought of the heart... That is what
-causes the gods to be born. Atum with his Ennead, and every divine utterance
-manifests itself in the the thought of the heart and the speech of the tongue.*
-
-Finally more refined: *He did not bring me forth from his mouth, nor
-conceive me in his hand, but he breathed me forth from his nostrils.*
-Creation moves from being symbolized as thought and speech to breath.
-
-This is all still from Egyptian myth but we are already at the point where the
-"breath of life" is very similar to the idea of the Christian Logos.  
-
-*"In the beginning was the Word, and the Word was with God, and the Word was
-God"*
-
-Neumann suggests the expression of the Logos in the Bible never broke
-completely from the idea of the self-fecundating, self-manifesting god.
-
-The action of creation is anthropomorphized. Creation happens by thought first
-and then speech. In Indian mythology this is expressed as follows:
-
-*He, Prajapati, took to praying and fasting, because he desired offspring, and
-he made himself fruitful.*
-
-Here we again have the paternal self-fecundating god who reproduces via prayer
-and fasting - similar to thought and speech.
-
-In Indian myth we have heat being expressed as thought for creation:
-
-*In the beginning the world was nothing at all. Heaven was not, nor earth, nor
-space. Because it was not, it bethought itself: I will be. It emitted heat.*
-
-
-
-## The Womb and the World Parents
 * The mythological stages of the evolution of consciousness starts with the ego
   contained in the unconscious and leads up to the ego becoming self aware and
   defending itself. Finally the ego is able to broaden its horizons. 
@@ -438,7 +165,6 @@ space. Because it was not, it bethought itself: I will be. It emitted heat.*
 * When the world parents finally separate, the young ego asserts itself. At this
   stage humanity becomes self-aware.
 
-* 
 * The beginning has a common symbol in a circle. Its allies are a sphere, and
   egg and the round of alchemy. All of symbols in this group  are self-contained
   without beginning or end. Without history, time, space or consciousness. All
@@ -545,7 +271,14 @@ space. Because it was not, it bethought itself: I will be. It emitted heat.*
   Parents from whom the creative inspiration blows, begets, gives birth, moves,
   breaths and speaks.
 
-#### Preconscious and Post conscious Knowledge
+The round or uroboros can also be interpreted as the containerfor the  World Parents - the union
+of feminine and masculine opposites in perpetual embrace. From Babylonian myth:
+
+*When on high the heaven had not been named Firm ground below had not been
+called by name, Naught but primordial Apsu, their begetter, (And) Mummu-Tiamat,
+she who bore them all, Their waters comingling as a single body.*
+
+### Preconscious and Post conscious Knowledge
 * Even though the ego experiences the uroboros as dark unconscious power there
   is still a sense if it as extra-worldly knowledge that is acquired before
   birth or after death. 
@@ -573,13 +306,322 @@ space. Because it was not, it bethought itself: I will be. It emitted heat.*
 
 
 
+## The Stages of Uroboric Autarchy
+
+When Neumann speaks of uroboric autocracy he is simply saying the uroboros
+is dominating over the ego at this stage.  The three stages of uroboros
+autocracy Neumann outlines are the pleromatic stage, the stage of the
+alimentary uroboros and the genital masturbatory stage. These stages are
+different contexts for the creative principle being contained in the
+uroboros.
+
+### The Pleromatic Stage
+#### Introduction
+
+This first stage or context he describes as "the pleromatic" (divine
+plenitude) stage of paradisal perfection in the unborn, the embryonic
+stage of the ego, which a later consciousness will contrast with suffering
+of the non-autacratic ego in the world."
+
+The beginning projects itself mythologically as the beginning of the world.
+These myths begin with the world because in this virtual stage there is no
+separation between the world and the individual psyche. The individual psyche
+is "knows itself as the world and in the world experiences the its own
+becoming as world becoming, its own images as the starry heavens and its own
+contents as the world-creating gods."
+
+In virtually all myths creation is the creation of light which is symbolically
+consciousness. Consciousness as light in contrast to the darkness of the
+unconscious is the real object of creation mythology.
+
+Before the light we still have the virtual stage of creation which precedes
+the light is surrounded by a series of symbols. 
+
+
+This needs some unpacking. This first sub-stage is before consciousness, before
+ego and before history. Since it is before it is a virtual or a priori stage.
+The analogy here is like the child in the womb of its mother. The mother or the
+womb provides all, and in fact there is no distinction between child and mother
+or ego and world. It is paradisal as all is provided for and there is no
+suffering. "An embryonic ego still undeveloped germ of ego consciousness
+slumbers in the perfect round." 
+
+In the beginning is perfection and wholeness. The beginning though is a
+virtual stage that cannot be described rationally but only symbolically.
+
+As soon as the rational mind tries grab on to this idea of the beginning plus
+end, creation plus destruction, the idea slips through the fingers. For this
+reason a symbol stands at the beginning. 
+
+The beginning can be seen as two places the birth of the world and of the
+individual. 
+
+
+
+#### The Maternal Uroboros
+
+One aspect of the uroboros is the part that encircles or contains. This aspect
+is seen primarily as maternal.  Human consciousness at this stage is nascent
+and under the dominance of the uroboros. Remember that for Neumann the ego sees
+itself differently in each stage of consciousness. The ego still sees itself
+as the world and the world as itself. The initial stage of the infantile ego is
+marked by the predominance of the maternal side of the uroboros.
+
+In this stage the world is all embracing and the ego tires easily and sinks
+back into the embrace of the Great Mother.  
+
+The Great Mother in this stage has all the positive maternal attributes:
+nourishing, sheltering, protecting, warmth, comfort, and forgiveness. It is an
+image of paradise that cannot be realized in adult life.
+
+The Garden of Eden is a great example of maternal aspect of the uroboros. The
+walled garden encircles, protects, provides and nourishes.
+
+The Great and Good Mother embody this stage of the uroboros and are not seen
+again until a much later stage of development where she returns as the
+wise Sophia as the wise "Mother of All Living". In subsequent stages the
+feminine aspect appears as the terrible or devouring mother.
+
+
+##### Uroboric Incest
+
+Neumann notes that the natural impulse of the pleromatic stage is not for
+consciousness to bubble up, but for the ego to return to a restful state in the
+uroboros. He calls this "uroboric incest" or and entry back into the mother
+(womb). As the nascent ego sparks into existence it's tendency is to return to
+unity with the mother. There is no pleasure or sexual meaning here. Neumann
+describes this as "passively letting oneself being taken". We can see how this
+image could be associated with longing, nostalgia, depression or even suicidal
+ideation. This is a negative reflection of the *hierros gamos* or sacred
+marriage (union of heaven and earth) that can occur in later stages of
+consciousness development. Since uroboric incest is a return to the mother or
+earth it is a kind of death that can be symbolized by a tomb, sarcophagus,
+cave, coffin or sunset. As the symbolism of the uroboros suggests the ego or
+child is then reborn at sunrise.
+
+As long as the ego is weak the downward drag toward unconsciousness is felt as
+pleasure and safety while ego consciousness is felt as heavy and weak. As long
+as this holds the ego submits to the uroboros.
+
+Neumann calls this downward drag uroboric incest. It is not incest in the
+sexual sense but a symbol of return to unconscious. He also calls it
+a precursor to the hierros gamos (sacred marriage) which comes later with the
+hero reunifying with the round which is a mandala in the later stage. 
+
+Uroboric incest is a form of re-entry to the mother or to the unconscious. It
+is a desire to be dissolved and absorbed and is pleasureful. The Great Mother
+takes the child back into herself. Symbols associated with uroboric incest
+include the cave, the earth, tomb, coffin, urn and sarcophagus. The signia of
+death is associated with uroboric incest.
+
+This death however is seen as pleasurable an reunion with the Great Mother
+who is all providing.
+
+### The Stage of the Alimentray Uroboros
+
+#### Body Symbolism
+* In the uroboric stage we also have body symbolism belly = instinct, breast and
+  heart = feeling,  and head and rain = spirit or thought.
+
+* The body scheme is the archetype of the original man in whose image the world
+  has been created. 
+   
+* Ancient man's fear of magical influence because every part of the body can
+  stand for the body as the whole. In creation symbolism any bodily output is
+  creative: semen, feces, spit breath, words, and urine. The world is created
+  from all of it.
+
+* The child emphasizes the visceral region. For the Greeks the midriff was the
+  seat of consciousness. For the Egyptians and Indians the heart was the seat.
+  In both cases thought is bound up with emotion - they are not yet separate.
+  The heart is also the center of ethical decision-making. The intestinal
+  processes of the alimentary track are lover and more fundamental. A sated
+  person acts differently than and hungry one. The infantile ego sees the
+  maternal uroboros as the source of food and satisfaction.
+
+#### Food Symbolism
+
+The symbolism here focuses on consumption of food or prey and bodily
+output as birth. The serpent consumes its own waste as food and thus recreates
+itself. This creates the circle or ring that binds.
+
+The uroboros is call the tail-eater and this early stage is dominated by
+the symbol of the alimentary canal. The strong eat the weak and the weak
+are eaten by the strong. Hunger is the primer mover not sex.
+ 
+Eating = intake, birth = output food (later speech). Life
+= power = food.
+
+Food symbolism as cosmic content where the uroboros consumes food in its
+destructive aspect (destructive in order to be creative).  This is the
+uroboros as the tail-eater. From Sanskrit (Indian) myth:
+
+*From food all creatures are produced, All creatures that dwell on earth. By
+food they live And into food they finally pass. Food is the chief among
+beings. Therfore they call it the panacea. Verily he obtains all food. Who
+worhships Brahma as food. For food is the chief among beings. Therefore they
+call it a panacea. All creatures are born of food. By food they continue to
+grow. Creatures feed on it, it upon creatures, Therefore it is called food. 
+
+Brahma arises through tapas. From Brahma comes food. From food-breath,
+spirit, truth,  Worlds, and in works, immortality.*
+
+We can see the uroboros in creative and destructive modes. It creates
+food of itself, to feed itself, destroy itself and recreate itself - and
+infinite loop. The destruction or eating can be seen as a sacrifice to
+the gods.
+
+We still have vestiges of these ideas in phrases we use today:
+      * "He is consumed by his work"
+      * "A consuming disease"
+      * "Eaten up with jealousy"
+      * "Death's maw"
+      * "A devouring war"
+
+Vedic myth:
+*Whatever he brought fort, he resolved to eat. Because he eats
+everything he is called infinite.  Therefore he who knows the essence of
+aditi, becomes the eater of the world; everything becomes food for
+him.*
+
+The act of eating or inwardly digesting means to having possessing and
+having power over it.  Conscious realization is eating. 
+
+This is expressed in Indian, Egyptian, and Christian myth. Liquor,
+body and blood of Christ in communion). Psychologically, the outside
+content is experienced internally. Eating becomes conscious assimilation
+of content.
+
+The maternal aspect of the uroboros looms over all of this food
+symbolism. Need is hunger and satisfaction is satiety. He calls this
+a pre-genital stage. To be satisfied is to eat. To express or to speak
+means to excrete or spit at this stage.  
+
+The bodily functions symbolizes a psychological process as well.
+Consuming the gods is a spiritual act. The ingestion of this content
+produces a change. Transformation of cells through food intake is
+a basic change experienced by man.  A hungry, weak man can be
+transformed into a satisfied and strong one through consuming food.
+
+
+
+### The Genital-Masturbatory Stage (The Self Creating God and the Logos)
+#### The Paternal Uroboros - the Creative Spark and the Logos
+So while the World Parents present a picture of static
+pre-history - the perpetual embrace, we need a related but perhaps contradictory
+symbol for birth.  Since the uroboros is in part the beginning, birth, creation,
+or the wheel that rolls itself we find myths of self-impregnating gods
+(pro)creating without a partner.  In Egyptian theology the god Atum procreates
+by himself. From the Egyptian Pyramid Text:
+
+*In the beginning there was nothing (Nun). A mound of earth rose from Nun
+and upon it Atum created himself.  He spat Shu (air) and Tefnut (moisture)
+from his mouth.  Atum’s two offspring became separated from him and lost
+in the dark nothingness, so Atum sent his “Eye” to look for them.  When
+they were found, he named Shu as “life” and Tefnut as “order” and entwined
+them together.*	[Ancient Egypt
+Online](https://ancientegyptonline.co.uk/atum/).
+
+In other versions of the Egyptian creation myth Atum create offspring via
+masturbation. From the book of Apopis: *Atum, who indulged himself in
+Heliopolis, took his phalis in his hand to arouse pleasure, a brohter and sister
+were produced Shu and Tefnut.*
+
+Neumann notes how this kind of creation myth becomes more sophisticated over
+time and leans into the idea of spiritualization or inspiration. Hindi myths
+express how thinking and introversion are the equivalent of emitting heat a
+creative force:
+
+	*He found foothold on the earth. When he had found a firm foothold
+	there, he thought: I will propagate myself. He emitted heat and became
+	pregnant.*
+
+Thought, and introversion become spirit and later in Christianity the Logos: *In
+the beginning was the Word, and the Word was with God, and the Word was God.*
+John 1:1	
+
+Neumann states that even the Logos still hints at the uroboric idea of the
+self-manifesting god. 
+
+The paternal side of the uroboros is the procreative thrust that kicks
+everything off including the evolution of time. Neumann notes that this is
+harder to visualize than the maternal side of the uroboros. It does sound
+quite strange to us as modern humans. Take these examples from Egyptian
+mythology.
+
+From the Book of Apopis: *I copulated in my hand. I joined myself with my
+shadow and spurted out of my own mouth. I spewed forth as Shu and spat forth
+as Tefnut*
+
+From Pyramid Texts: *Atum, who indulged himself in Heliopolis, took his
+phallus in order to arouse pleasure. A brother and sister were produced, Shu
+and Tefnut.*
+
+This is a symbol of the creative beginning. The paternal side of the uroboros
+creates a brother and a sister by joining himself with this shadow or opposite
+(the feminine).  He calls this the image of the self-fecundating primal god.
+Neumann suggests then that this image is better crystallized later in new
+variations of these myths where the image moves towards spiritualization.
+These examples help us understand the idea further. Keep in mine that the
+Egyptian hieroglyphs for thought is the heart and speech is the tongue.
+
+*It is the heart (thought) which makes all that results come out, and it is the
+tongue which repeats (expresses) the thought of the heart... That is what
+causes the gods to be born. Atum with his Ennead, and every divine utterance
+manifests itself in the the thought of the heart and the speech of the tongue.*
+
+Finally more refined: *He did not bring me forth from his mouth, nor
+conceive me in his hand, but he breathed me forth from his nostrils.*
+Creation moves from being symbolized as thought and speech to breath.
+
+This is all still from Egyptian myth but we are already at the point where the
+"breath of life" is very similar to the idea of the Christian Logos.  
+
+*"In the beginning was the Word, and the Word was with God, and the Word was
+God"*
+
+Neumann suggests the expression of the Logos in the Bible never broke
+completely from the idea of the self-fecundating, self-manifesting god.
+
+The action of creation is anthropomorphized. Creation happens by thought first
+and then speech. In Indian mythology this is expressed as follows:
+
+*He, Prajapati, took to praying and fasting, because he desired offspring, and
+he made himself fruitful.*
+
+Here we again have the paternal self-fecundating god who reproduces via prayer
+and fasting - similar to thought and speech.
+
+In Indian myth we have heat being expressed as thought for creation:
+
+*In the beginning the world was nothing at all. Heaven was not, nor earth, nor
+space. Because it was not, it bethought itself: I will be. It emitted heat.*
 
 
 
 ## The Maternal Uroboros and Transition
-* The symbolism of the uroboric stages does not represent a return to oral
-  fixation in a Piagetian sense but rather a total surrender to the
-  unconscious. Neumann called this uroboric incest earlier. 
+
+The symbolism of the uroboric stages does not represent a return to oral
+fixation in a Piagetian sense, nor autoeroticism and narcissism, but
+rather a total surrender to the unconscious. Neumann called this uroboric
+incest earlier. This is a necessary stage of development. It is only
+pathological when the ego fails to progress. Ultimately, the ego has to
+pass through this stage to mature and detach from the uroboros so it can
+then encounter or face off with the universal principle of opposites which
+will then take on the aspect of the Great and terrible mother in the next
+stage of development of consciousness.
+
+This process of self formation Neumann called centroversion. He describes
+it as this process of of growth and self-realization through an increase
+in consciousness. It is the process of coming to terms with the objects of
+the inner and the outer world and using them to build personality. It is
+similar to Jung's term individuation though Jung focuses on the second
+half of life. Building up the ego and consciousness is the key task in the
+first half of life.
+
+So the perceived narcissism is in many ways the ego building up enough
+power to be stable and defend itself against the maw of the unconscious.
+This is all needed for the development of the individual.
 
 * The maternal aspect of the alimentary	stage then emphasizes the breasts
   but they are generative elements in the sense they fertilize the young.
@@ -594,34 +636,6 @@ space. Because it was not, it bethought itself: I will be. It emitted heat.*
   differentiate itself. Active and passive striving become distinct.
   Conceiving by eating and giving birth by excreting become distinct. The
   opposites begin to emerge.
-
-
-
-
-
-One of Neumann's primary thesis' is that consciousness in the individual
-repeats the developmental stages of humanity (this comes right from Jung
-and Nietzsche). Whenever we speak of creation of the world, we are talking
-about the birth of the individual psyche. When we talk about the hero
-slaying the dragon, we are talking about the development of the individual
-psyche out of the collective unconscious. As Neumann states: ... in every
-individual life, consciousness re-experiences its emergence from the
-unconscious in the growth of childhood, and every night in sleep, dying
-with the sun, it sinks back into the depths of the unconscious, to be
-reborn in the morning and begin the day anew. *Page 18*
-
-
-The symbol Neumann lands on as his primary metaphor for creation myth stage of
-the development of consciousness is the Uroboros. The Uroboros is an Egyptian
-symbol for a cosmic creature that slays, weds and impregnates itself. A common
-visual symbol for the uroboros is a snake eating its tail. It is seen in myths
-of Egypt, India, Babylon, Rome, Navajo, Mexico and even in the Revelation of St.
-John.  
-
-
-What is so "illogical" about these symbols is they do mean the beginning and the
-end, plenitude and nothingness, birth, life, death and resurrection all at the
-same time.
 
 * Uroboric Autarchy is not narcissism or auto eroticism. These are only
   valid in the case where there is a lack of development or

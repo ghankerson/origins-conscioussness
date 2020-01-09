@@ -108,16 +108,19 @@ Jung's model of the psyche by Jon Betts a Canadian Jungian Analyst.
 Stevens](https://www.amazon.com/gp/offer-listing/069101048X).
 
 
-###The Onion Analogy Stevens uses an analogy of an onion with 4 principle layers
+### The Onion Analogy
+Stevens uses an analogy of an onion with 4 principle layers
 to describe this model. The outer layer is the ego while the innermost layer is
 called the Self. In between we have two layers of the unconscious: the personal
 and the collective unconscious. 
 
-###The Ego The ego is what we call I or myself: our conscious existence. It is
+### The Ego
+The ego is what we call I or myself: our conscious existence. It is
 in charge of stability of personality and identity over time as well as
 cognition, daily executive function and reality testing. 
 
-###The Self The Self is the director of our lives across time.  Jung posits that
+### The Self
+The Self is the director of our lives across time.  Jung posits that
 we are born with our potential defined and the Self guides us to the best
 possible outcome given the environment we physically and psychologically inhabit
 during our lives. Jungian Analyst Jon Betts refers to Jungian analyst and author
@@ -130,7 +133,9 @@ therefore the destiny of the individual. At times Jung speaks of the Self as
 initiatory of psychic life. At other times he refers to its realization as the
 goal.” 
 
-### The Ego Self Axis We begin life with a body and the Self. All that potential
+### The Ego Self Axis
+
+ We begin life with a body and the Self. All that potential
 is with us in the beginning as the Self - we are not blank slates according to
 Jung. The Self is our blueprint, our potential. We then over the first half of
 life build up our ego making it more and more powerful to enable us to interact
@@ -194,7 +199,8 @@ unconscious consists of archetypes.
   becoming a parent for example. Think of this as the psychological side of
   human evolution.
 
-### Individuation A process of individual increase in consciousness (perhaps
+### Individuation
+A process of individual increase in consciousness (perhaps
 described emotional, spiritual and intellectual maturity and growth) by
 surfacing complexes and archetypal images, wrestling with their significance,
 and making them conscious thus promoting individual growth.
