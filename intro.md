@@ -49,6 +49,8 @@ found such a resource as of it yet.  So the next best thing is to do this
 myself.  This is an ambitious intellectual task and I hope the process will be
 as enlightening for you as it is for me.
 
+My aim is to provide a review and to help understand the concepts here.
+
 
 * Back to Peterson's interpretation of the Lion King.  I think he is
   interpreting the symbolism correctly or at least a correct interpretation. 
@@ -264,38 +266,114 @@ wiser and more conscious of the complexes and archetypes that influence us
 in our actions.
 
 In each of these stages we see the position of the individual (ego) in
-relation to the symbolic feminine and masculine. The ego position shifts
-in relation to the symbolic feminine and masculine at each stage. In the
-beginning - the creation stage - the masculine and feminine are united and
-the ego sees itself as indistinct from the unified masculine and feminine.
-He calls this stage the uroboros. In the next stage, The Great Mother, the
-masculine is diminished and the feminine dominates in largely a negative
-connotation as it prevents the young ego from blossoming. As we proceed
-through he next stages the ego becomes independent. These stages are  the
-separation of the world parents, the birth of the hero, the slaying of the
-mother (or the dragon fight), the slaying of the father and finally the
-captive and the treasure and the transformation or Osiris. The symbol
-then in the final stage is the mandala where unity is again achieved but
-the individual now joins in the embrace of the symbolic feminine and
-masculine as a conscious participant.
+relation to the symbolic feminine and masculine. What do we mean by the
+symbolic masculine and feminine?  
+
+This is difficult to define for us with our modern minds and our current
+political thought to get a grasp of.  When we talk about the symbolic
+masculine and feminine we want to look at the symbols more in the way the
+ancient mind looked at them.  Keep in mind that everyone has masculine and
+feminine characteristics in their personality. In Jungian psychology the
+goal is always the balance of the opposites in an effort to create
+wholeness and move away from one sidedness.  Don't take this as commentary
+on the nature of gender or men and women in general. Remember in the myth
+of the birth  of the goddess Athena she is born of Zeus directly without
+a mother and is a goddess of wisdom and war both very masculine pursuits.
+In other words she is feminine but exhibits strong masculine qualities.
+
+Let's try some word associations to get a feel for this. Clear your mind
+and just let these words sir your imagination. I'll state a feminine word
+first followed by a masculine word and pause before the next pair. Close
+your eyes and take a deep breath. 
+
+| Feminine      | Masculine    |
+| ------------- | ------------ |
+| Moon          | Sun          |
+| Earth         | Heaven       |
+| Feeling       | Thought      |
+| Instinct      | Logic        |
+| Womb          | Phallus      |
+| Darkness      | Light        |
+| Listen        | Speak        |
+| Mystery       | Revelation   |
+| Sheath        | Sword        |
+
+Hopefully, this gives you a feel for the concepts.  Defining concepts like
+the symbolic feminine and masculine is almost counter productive in the
+sense that the harder we try to grasp the concepts the more they can slip
+away through our fingers. It seems better to circle around the concepts by
+providing examples to illustrate.  
+
+The ego position then shifts in relation to the symbolic feminine and
+masculine at each stage. 
 
 We can get a feel for these stages composed of archetypes by just examining the
-section titles of the book. We will do a podcast episode about each of these.
+section titles of the book. 
+
+Here I just offer a comment about the ego position in relation to the
+symbolic masculine and feminine in each chapter. We will do a podcast
+episode about each of these perhaps multiple podcasts on some of the
+longer chapters.
 
 
 A. The Creation Myth 
 	I. The Uroborous
+
+	  In the beginning - the creation stage - the masculine and feminine 
+	  are united and the ego sees itself as indistinct from the unified
+	  masculine and feminine. He calls this stage the uroboros. In the ego
+	  does not distinguish between itself and the wotld and the gods. 
+	  The uroboros is the snake eating its tale representing creation,
+	  destruction and rebirth. 
+
 	II. The Great Mother
+
+	  The ego shifts slightly and the uroboros reappears as the Great
+	  Mother who is both nuturer and destroyer. Tied to the seasons
+	  and agricultural cycle the masculine appears as the son of the
+	  mother who is nutured, raised, sacrificed and reborn each year
+	  (a corn king for example). 
+
 	III. The Seperation of of World Parents: The Principle of Opposites
+	  
+	  Here the ego finally starts to find solid ground by separating
+	  world parents but at the same time feels a great loss and guild
+	  over the being seperated (think of the fall). The uroboros is
+	  finally broken.
 
 B. The Hero Myth
-	I. The Birth of the Hero II.
-	The Slaying of the Mother
+	I. The Birth of the Hero
+	  
+	  The hero is born and the struggle with the primordial parents
+	  begins. The son  (the ego) places himself between the world
+	  parents and divides them. The who picture shifts and the ego
+	  takes up more space on the stage while the uroboros becomes
+	  the dragon of chaos that must be defeated or the hero is 
+	  devoured (the ego dissolving back into the unconscious).
+
+	II. The Slaying of the Mother
+
+	  The hero is faced with dragon fight. The dragon is the uroboros
+	  (or the first parents) rearing its ugly head trying to snatch
+	  the ego back into the unconscious.
+
+
 	III. The Slaying of the Father
 
 C. The Transformation Myth
 	I. The Captive and the Treasure
 	II. Transformation or Osiris
+In the next stage, The Great Mother, the masculine is diminished and the
+feminine dominates in largely a negative connotation as it prevents the
+young ego from blossoming. As we proceed through he next stages the ego
+becomes independent. These stages are  the separation of the world
+parents, the birth of the hero, the slaying of the mother (or the dragon
+fight), the slaying of the father and finally the captive and the treasure
+and the transformation or Osiris. The symbol then in the final stage is
+the mandala where unity is again achieved but the individual now joins in
+the embrace of the symbolic feminine and masculine as a conscious
+participant.
+
 
 
 Each of these stages is a chapter in  the book and will have one or
