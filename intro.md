@@ -212,12 +212,22 @@ What is Neumann trying to accomplish in this book? We don't have to read far to
 answer this question. In the first sentence of the introduction he states: "The
 following attempt outline the archetypal stages of the development of
 consciousness is based on modern depth psychology. It is an application of the
-analytical psychology of C.J. Jung ..." (Depth psychology is defined as those
-branches of psychology that take the unconscious into account
-- Freudian and Jungian psychology). 
+analytical psychology of C.J. Jung ..." (Depth psychology is defined as
+those branches of psychology that take the unconscious into account
+Freudian and Jungian psychology). 
 
 The key word here is stages.  His theory outlines what he sees as the stages of
 the development of consciousness.
+
+Neumann emphasises that unlike other methods that look at environmental
+factors in the development of consciousness, he is interested in the
+internal, psychic, and archetypal factors in the development of
+consciousness.
+
+He calls archetypes the structural organs of the psyche, or pictorial
+instincts. The unconscious uses these archetypes to reveal itself to the
+conscious mind. Archetypes are then structural layers or organs of the
+psyche. 
 
 Neumann:  "It is the task of this book to show that a series of archetypes is
 a main constituent of mythology, that they (archetypes) stand in stadial
@@ -227,19 +237,19 @@ ontogenetic (lifetime) development, the individual ego has to pass through the
 same archetypal stages which determined the evolution of consciousness in the
 life humanity. 
 
+This idea of the individual repeating the stages of growth of the species
+is an idea Jung took from Friedrich Nietzsche. Now all of this is quite
+abstract, let's try to make it clearer.
+
 What I think he is saying in this statement is that historically human
 consciousness went through a series of stages of development. The individual in
 his lifetime passes through these same stages as the species. These stages are
 composed of archetypes - pictoral forms of instincts. We see these archetypes in
 mythology. To the extent he can Neumann is trying to survey all of mythology and
-determines its outlines.  In theses outlines he sees the stages of the growth of
-consciousness of the individual and of humanity.
+determines its outlines.  In theses outlines he sees the stages of the
+growth of consciousness of the individual and of humanity. He is
+developing a theory.
 
-In this book Neumann tries (to the extent this is even possible) to survey
-all myth and find a common thread of themes that can be surfaced.
-
-This idea of the individual repeating the stages of growth of the species is an
-idea Jung took from Friedrich Nietzsche. 
 
 ### Stages of the Development of Consciousness
 Passing through each stage, the ego transforms its relationship to the

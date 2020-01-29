@@ -19,7 +19,7 @@
 * The overwhelming might of the unconscious is seen as the evil mother
   the goddess of death, famine, plague flood and the sweetness that leads
   to destruction.  In contrast the good mother is the dispenser of life
-  and the womb of cornucopia ho provides an image of resurrection, rebirth
+  and the womb of cornucopia who provides an image of resurrection, rebirth
   and new life.
 
 * Against all this the ego/individual remains small and weak.
@@ -29,7 +29,7 @@
 
 * Early man's life has a feeling of constant endangerment as danger and
   uncertainty are everywhere. The external world of famine and flood is
-  projected as demons. The inner world is inhabited by these demos as
+  projected as demons. The inner world is inhabited by these demons as
   witches, monsters, and magicians whose invisible workings manifest as
   emotional outburst, lust, murderous impulses, visions and
   hallucinations. Fear rules - we haven't rid ourselves of this today.
@@ -65,7 +65,20 @@
   is associated with of earth and vegetation symbolism. Marriage is an
   agrarian matter filled with agricultural symbolism.
 
- * Plato in Menexenus: *In fertility and generation, woman does not set an
-   example to the earth, but the earth sets an example ot woman.*
+* Plato in Menexenus: *In fertility and generation, woman does not set an
+  example to the earth, but the earth sets an example ot woman.*
+
+* Food symbolism is key at this stage as the Mother Goddess cultures and
+  myths connect food symbolism with fertility and, growth and agriculture.
+  
+* The uroboros at this stage is maternal as it characterized by the
+  child's relationship to the mother who provides nourishment but at the
+  same time occurs during a historical period where man is most dependent
+  on the earth and nature. 
+
+* The sequence child-man-ego-consciousness is dependent on
+  mother-earth-nature-unconscious and vice-versa. 
+
+* In this stage the divine mother and the helpless child are emphasized.
 
 
