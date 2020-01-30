@@ -265,6 +265,12 @@ and light. It's as if we get another bite at the apple at each stage being
 wiser and more conscious of the complexes and archetypes that influence us
 in our actions.
 
+Akin to geological layers these stages are not cleanly separated: they
+blend together. Pieces of an earlier stage can be found three stags later
+and vice versa. The uroboros of the first stage changes in each stages but
+manages to  stick around for quite awhile and never really leaves
+completely.
+
 In each of these stages we see the position of the individual (ego) in
 relation to the symbolic feminine and masculine. What do we mean by the
 symbolic masculine and feminine?  
@@ -301,11 +307,13 @@ your eyes and take a deep breath.
 Hopefully, this gives you a feel for the concepts.  Defining concepts like
 the symbolic feminine and masculine is almost counter productive in the
 sense that the harder we try to grasp the concepts the more they can slip
-away through our fingers. It seems better to circle around the concepts by
+through our fingers. It seems better to circle around the concepts by
 providing examples to illustrate.  
 
-The ego position then shifts in relation to the symbolic feminine and
-masculine at each stage. 
+The ego position then shifts, changes and transforms its in relationship
+to the symbolic feminine and masculine at each stage. The ego, the
+masculine and the feminine are all there at each stage - they just relate
+to each other differently at each stage.
 
 We can get a feel for these stages composed of archetypes by just examining the
 section titles of the book. 
@@ -320,26 +328,26 @@ A. The Creation Myth
 	I. The Uroborous
 
 	  In the beginning - the creation stage - the masculine and feminine 
-	  are united and the ego sees itself as indistinct from the unified
-	  masculine and feminine. He calls this stage the uroboros. In the ego
-	  does not distinguish between itself and the wotld and the gods. 
-	  The uroboros is the snake eating its tale representing creation,
-	  destruction and rebirth. 
+	  are united in perpeptual embrace while the ego is contained in this 
+	  embrace. The ego sees itself as indistinct from the unified
+	  masculine and feminine and lives in parcticpacion mystique. 
+	  Neumann calls this stage the uroboros. The uroboros is the snake
+	  eating its tale representing creation, destruction and rebirth. 
 
 	II. The Great Mother
 
 	  The ego shifts slightly and the uroboros reappears as the Great
 	  Mother who is both nuturer and destroyer. Tied to the seasons
-	  and agricultural cycle the masculine appears as the son of the
-	  mother who is nutured, raised, sacrificed and reborn each year
-	  (a corn king for example). 
+	  and agricultural cycle the masculine and/or the ego appear 
+	  as the son of the mother who is nutured, raised, sacrificed 
+	  and reborn each year (a corn king for example). 
 
 	III. The Seperation of of World Parents: The Principle of Opposites
 	  
 	  Here the ego finally starts to find solid ground by separating
 	  world parents but at the same time feels a great loss and guild
 	  over the being seperated (think of the fall). The uroboros is
-	  finally broken.
+	  finally starting to break.
 
 B. The Hero Myth
 	I. The Birth of the Hero
@@ -355,28 +363,25 @@ B. The Hero Myth
 
 	  The hero is faced with dragon fight. The dragon is the uroboros
 	  (or the first parents) rearing its ugly head trying to snatch
-	  the ego back into the unconscious.
+	  the ego back into the unconscious. Killing the terrible mother
+	  liberates the treasure or the fertile feminine.
 
 
 	III. The Slaying of the Father
 
+	  Even if the ego (hero or son) kills the terrible mother there is
+	  still the masculine side of the uroboros to deail with.
+
 C. The Transformation Myth
 	I. The Captive and the Treasure
 	II. Transformation or Osiris
-In the next stage, The Great Mother, the masculine is diminished and the
-feminine dominates in largely a negative connotation as it prevents the
-young ego from blossoming. As we proceed through he next stages the ego
-becomes independent. These stages are  the separation of the world
-parents, the birth of the hero, the slaying of the mother (or the dragon
-fight), the slaying of the father and finally the captive and the treasure
-and the transformation or Osiris. The symbol then in the final stage is
-the mandala where unity is again achieved but the individual now joins in
-the embrace of the symbolic feminine and masculine as a conscious
-participant.
+
+ The symbol then in the final stage is the mandala where unity is again
+ achieved but the individual now joins in the embrace of the symbolic
+ feminine and masculine as a conscious participant.
 
 
-
-Each of these stages is a chapter in  the book and will have one or
+Each of these stages is a chapter in the book and will have one or
 podcasts dedicated to them.  
 
 Human consciousness has absorbed more and more unconscious contents over
@@ -388,7 +393,7 @@ this integration.
 Now when he says West this includes ancient Babylon and Egypt. I am really
 excited to get into this aspect of the book because its absolutely fascinating.
 He ties the myths like those of Marduk (Babylon), Osiris (Egypt), and Christ
-together as themes that are the  basis for development of society and
+together as themes that are the basis for development of society and
 consciousness.  This is that ability to look under the current of history and
 see the themes that still influence us today that make Neumann so compelling.
 
@@ -407,6 +412,7 @@ solutions and new problems which trigger the whole process again. The collective
 human aspect is rediscovered and begins to come alive, new insights, new
 possibilities of life add themselves to the narrowly personalistic and
 rigid personality of the sick-souled modern man."  
+
 The development of consciousness from the unconscious in myth is the focus of the
 first half of the book while the second half focuses on the internalization of
 these myths into the individual psyche.
